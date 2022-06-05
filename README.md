@@ -1,4 +1,4 @@
-# Baile das Onças na Semana de Celebração das Onças Pintadas do Contínuo de Paranapiacaba
+# Baile das Onças na Semana de Celebração das Onças Pintadas do Contínuo de Paranapiacaba - 26 de novembro 2022
 
 [@oncasdocontinuodeparanapiacaba](<https://www.instagram.com/oncasdocontinuodeparanapiacaba/>), @fblpalmeira e [@coletivotocaya](https://www.instagram.com/coletivotocaya/) apresentaram o BAILE DAS ONÇAS - uma festa online temática que integra a Semana de Celebração das Onças Pintadas do Contínuo de Paranapiacaba. Com apresentação ao vivo no canal TocayaTV, músicas relacionadas ao magnifífico universo das ONÇAS, em uma seleção de sons e temas feita por @fblpalmeira.
 
