@@ -7,3 +7,8 @@ Em colaboração com o [Projeto Onças do Contínuo de Paranapiacaba](<https://w
 A apresentação ocorreu ao vivo no [Canal do TocayaTV na Twitch](https://www.twitch.tv/tocayatv), com duas horas de músicas relacionadas ao magnifíco universo das ONÇAS. A seleção musical incluiu de Tom Jobim a Tião Carreiro e Pardinho, todos cantando a onça em diferentes eixos temáticos. A gravação ficou disponível por duas semanas no canal. 
 
 Agradecemos a todas as pessoas envolvidas na conservação das onças, incluindo as pessoas que estão na linha de frente da conservação como gestores de parque, monitores, guardas-parque, comunitários locais e todos os produtores rurais que conciliam a sua produção com a conservação das onças. Viva, essa live foi para vocês!
+
+As canções que falam sobre a onça estão disponíveis em diferentes plataformas de música como o Spotify, o YouTube, o YouTube Music, Letras Terra, entre outras. Utilizamos diferentes plataformas para realizar a pesquisa pois elas se complementam, já que algumas canções apenas são encontradas em uma determinada plataforma.
+
+- [Playlist Letras Terra](https://www.letras.mus.br/membros/1318340/)
+- [Playlist Spotify](https://open.spotify.com/playlist/04HwA106yZORSAis4JLAoi)
