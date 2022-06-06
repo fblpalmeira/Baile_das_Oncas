@@ -30,19 +30,19 @@ Playlist completa (ATUALIZADA) em ordem alfabética por nome de música e autor:
 - [Bafo da onça - Beth Carvalho] 
 - [Bandinha do macaco - Genival Lacerda]
 - [Bicharada - Lan Lan]
-- [Borzeguim  - Tom Jobim]
+- [Borzeguim  - Tom Jobim](https://www.letras.mus.br/tom-jobim/86158)
 - [Cablocos da onça-pintada - Tainá Santos]
 - [Caçada de onça - Craveiro e Cravinho](https://www.letras.mus.br/craveiro-cravinho/1560459)
-- [Caçada de onça - Rolandro Boldrin (Serrinha e Caboclinho)]
-- [Caçador do Ivinhema - Tião Carreiro e Pardinho]
+- [Caçada de onça - Rolandro Boldrin (Serrinha e Caboclinho)](https://www.letras.mus.br/rolando-boldrin/1902110)
+- [Caçador do Ivinhema - Tião Carreiro e Pardinho](https://www.letras.mus.br/tiao-carreiro-e-pardinho/1583692)
 - [Cachorro valente - Jaco e Jacozinho](https://www.letras.mus.br/jaco-jacozinho/883320)
-- [Capoeira do Arnaldo - Paulo Vanzolini]
+- [Capoeira do Arnaldo - Paulo Vanzolini](https://www.letras.mus.br/paulo-vanzolini/397724)
 - [Casamento da onça - Raul Torres & Florêncio]
 - [Casinha de carandá - Nhô Pai e Nhô Fio]
-- [Chegou a hora da onça beber água - Zico e Zeca]
+- [Chegou a hora da onça beber água - Zico e Zeca](https://www.letras.mus.br/zico-e-zeca/1715070)
 - [Chico Onça e Mané Gato - Jararaca e Ratinho] 
 - [Coco da onça - Toninho e Tonhão]
-- [Choro das mulatas  - Paulo Vanzolini]
+- [Choro das mulatas  - Paulo Vanzolini](https://www.letras.mus.br/paulo-vanzolini/1920514)
 - [Como dois animais - Alceu Valença](https://www.letras.mus.br/alceu-valenca/44009)
 - [Dois corações - Tonico e Tinoco]
 - [Do Pilá - Nuno Roland]
@@ -67,17 +67,17 @@ Playlist completa (ATUALIZADA) em ordem alfabética por nome de música e autor:
 - [O menino e o caçador - Lourenço e Lourival]
 - [Onça - Barbatuques](https://www.letras.mus.br/barbatuques/1800276)
 - [Onça Caetana - Sivuca]
-- [Onça de paletó - Tião Carreiro e Pardinho]
+- [Onça de paletó - Tião Carreiro e Pardinho](https://www.letras.mus.br/tiao-carreiro-e-pardinho/1864931)
 - [Onça / Docilmente selvagem - As Baías]
-- [Onça pintada - Serrinha e Caboclinho]
-- [Onça pintada - Tião Carreiro e Pardinho]
-- [Onça pintada - Zeca Baleiro]
+- [Onça pintada - Serrinha e Caboclinho](https://www.letras.mus.br/serrinha-caboclinho/onca-pintada)
+- [Onça pintada - Tião Carreiro e Pardinho](https://www.letras.mus.br/tiao-do-carro-pagodinho/onca-pintada)
+- [Onça pintada - Zeca Baleiro](https://www.letras.mus.br/zeca-baleiro/onca-pintada)
 - [Parte com o capeta - Angela RoRo](https://www.letras.mus.br/angela-ro-ro/parte-com-o-capeta)
 - [Peão - Almir Sater]
 - [Pé do Lageiro  - Aldair Soares](https://www.letras.mus.br/aldair-soares/pe-do-lageiro)
-- [Pulo do gato - Saulo Laranjeira]
+- [Pulo do gato - Saulo Laranjeira](https://www.letras.mus.br/saulo-laranjeira/1318628)
 - [Retrato de um forró - Luiz Gonzaga](https://www.letras.mus.br/luiz-gonzaga/261218)
-- [Saudosa vida de peão - Tião Carreiro e Pardinho]
+- [Saudosa vida de peão - Tião Carreiro e Pardinho](https://www.letras.mus.br/tiao-carreiro-e-pardinho/463388)
 - [Segura a nêga - Bebeto](https://www.letras.mus.br/bebeto/209329)
 - [Três Potes - Josias Sobrinho]
 - [Tudo cai - Lourenço e Lourival]
