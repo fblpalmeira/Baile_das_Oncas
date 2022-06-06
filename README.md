@@ -40,7 +40,7 @@ Playlist completa (ATUALIZADA) em ordem alfabética por nome de música e autor:
 - [Casamento da onça - Raul Torres & Florêncio](https://www.youtube.com/watch?v=8BobpvxZhmY)
 - [Casinha de carandá - Nhô Pai e Nhô Fio](https://www.letras.mus.br/nho-pai-e-nho-fio/casinha-de-caranda/)
 - [Chegou a hora da onça beber água - Zico e Zeca](https://www.letras.mus.br/zico-e-zeca/1715070)
-- [Chico Onça e Mané Gato - Jararaca e Ratinho] 
+- [Chico Onça e Mané Gato - Jararaca e Ratinho](https://discografiabrasileira.com.br/fonograma/48530/chico-onca-e-mane-gato) 
 - [Coco da onça - Toninho e Tonhão](https://www.youtube.com/watch?v=Iu1heVbaEGE)
 - [Choro das mulatas  - Paulo Vanzolini](https://www.letras.mus.br/paulo-vanzolini/1920514)
 - [Como dois animais - Alceu Valença](https://www.letras.mus.br/alceu-valenca/44009)
@@ -53,7 +53,7 @@ Playlist completa (ATUALIZADA) em ordem alfabética por nome de música e autor:
 - [Filhote de onça  - Lourenço e Lourival](https://www.letras.mus.br/lourenco-e-lourival/1194053)
 - [Flor de tangerina - Alceu Valença](https://www.letras.mus.br/alceu-valenca/400631)
 - [Giringonça - Elza Soares](https://www.letras.mus.br/elza-soares/1625966/)
-- [Lá vem a onça - Zé Fidélis]
+- [Lá vem a onça - Zé Fidélis](https://discografiabrasileira.com.br/composicao/149386/la-vem-a-onca)
 - [Leite de onça - Divino e Donizete](https://www.letras.mus.br/divino-donizete/leite-de-onca)
 - [Lero lero - Edu Lobo](https://www.letras.mus.br/edu-lobo/45625)
 - [Luar do sertão  - Luiz Gonzaga]
