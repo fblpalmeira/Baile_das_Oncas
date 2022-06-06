@@ -25,9 +25,9 @@ Playlist completa (ATUALIZADA) em ordem alfabética por nome de música e autor:
 - [Amigo da onça - Moreira da Silva](https://www.youtube.com/watch?v=GAEw0Len2Dc)
 - [Amigo da onça - Nasi & Os irmãos do Blues](https://www.letras.mus.br/nasi-os-irmaos-do-blues/1123860/)
 - [Amigo da onça - Premeditando o breque](https://www.youtube.com/watch?v=o73hR2UJSjY)
-- [Amigo da onça - Swing Rap]
+- [Amigo da onça - Swing Rap](https://www.youtube.com/watch?v=p6Klk_XPiMo)
 - [A onça - Fernanda Abreu](https://www.letras.mus.br/fernanda-abreu/128710/)
-- [Bafo da onça - Beth Carvalho] 
+- [Bafo da onça - Beth Carvalho](https://www.youtube.com/watch?v=ZUSchMcSzdM) 
 - [Bandinha do macaco - Genival Lacerda](https://www.letras.mus.br/genival-lacerda/1803304/)
 - [Bicharada - Lan Lan](https://www.letras.mus.br/lan-lan/bicharada/)
 - [Borzeguim  - Tom Jobim](https://www.letras.mus.br/tom-jobim/86158)
@@ -37,16 +37,16 @@ Playlist completa (ATUALIZADA) em ordem alfabética por nome de música e autor:
 - [Caçador do Ivinhema - Tião Carreiro e Pardinho](https://www.letras.mus.br/tiao-carreiro-e-pardinho/1583692)
 - [Cachorro valente - Jaco e Jacozinho](https://www.letras.mus.br/jaco-jacozinho/883320)
 - [Capoeira do Arnaldo - Paulo Vanzolini](https://www.letras.mus.br/paulo-vanzolini/397724)
-- [Casamento da onça - Raul Torres & Florêncio]
+- [Casamento da onça - Raul Torres & Florêncio](https://www.youtube.com/watch?v=8BobpvxZhmY)
 - [Casinha de carandá - Nhô Pai e Nhô Fio](https://www.letras.mus.br/nho-pai-e-nho-fio/casinha-de-caranda/)
 - [Chegou a hora da onça beber água - Zico e Zeca](https://www.letras.mus.br/zico-e-zeca/1715070)
 - [Chico Onça e Mané Gato - Jararaca e Ratinho] 
-- [Coco da onça - Toninho e Tonhão]
+- [Coco da onça - Toninho e Tonhão](https://www.youtube.com/watch?v=Iu1heVbaEGE)
 - [Choro das mulatas  - Paulo Vanzolini](https://www.letras.mus.br/paulo-vanzolini/1920514)
 - [Como dois animais - Alceu Valença](https://www.letras.mus.br/alceu-valenca/44009)
 - [Dois corações - Tonico e Tinoco](https://www.letras.mus.br/tonico-e-tinoco/89820/)
 - [Do Pilá - Nuno Roland](https://www.letras.mus.br/karina-buhr/do-pila/)
-- [É onça - Dupla Zoológica]
+- [É onça - Dupla Zoológica](https://www.youtube.com/watch?v=KxpCsg4W3yk)
 - [Esperar o sol - Flora Matos](https://www.letras.mus.br/flora-matos/esperar-o-sol/)
 - [Faca que não corta - Tião Carreiro e Pardinho](https://www.letras.mus.br/tiao-carreiro/1089161/)
 - [Ferreirinha - Tião Carreiro e Pardinho](https://www.letras.mus.br/tiao-carreiro-e-pardinho/570795/)
@@ -61,7 +61,7 @@ Playlist completa (ATUALIZADA) em ordem alfabética por nome de música e autor:
 - [Na barriga da onça - Zé do Cedro e Tião do Pinho](https://www.letras.mus.br/ze-do-cedro-tiao-pinho/na-barriga-da-onca/)
 - [Nego Dito - Branca Di Neve (Itamar Assumpção)](https://www.letras.mus.br/branca-di-neve/1281260/)
 - [No tempo do onça - Carlos Galhardo](https://www.letras.mus.br/carlos-galhardo/819774/)
-- [O amigo da onça - Ivete Ribeiro]
+- [O amigo da onça - Ivete Ribeiro](https://www.youtube.com/watch?v=QMkp9bjvMVw)
 - [O caçador e a onça - Poeta J Sousa](https://www.letras.mus.br/poeta-j-sousa/o-cacador-e-a-onca/)
 - [O cheiro da onça - Jaco e Jacozinho](https://www.letras.mus.br/jaco-jacozinho/1745471/)
 - [O menino e o caçador - Lourenço e Lourival](https://www.letras.mus.br/lourenco-e-lourival/849052/)
@@ -79,7 +79,7 @@ Playlist completa (ATUALIZADA) em ordem alfabética por nome de música e autor:
 - [Retrato de um forró - Luiz Gonzaga](https://www.letras.mus.br/luiz-gonzaga/261218)
 - [Saudosa vida de peão - Tião Carreiro e Pardinho](https://www.letras.mus.br/tiao-carreiro-e-pardinho/463388)
 - [Segura a nêga - Bebeto](https://www.letras.mus.br/bebeto/209329)
-- [Três Potes - Josias Sobrinho]
+- [Três Potes - Josias Sobrinho](https://www.youtube.com/watch?v=jyKtKyG3KgI)
 - [Tudo cai - Lourenço e Lourival](https://www.letras.mus.br/lourenco-e-lourival/1895763/)
 - [Vamos Mariquinha - Genival Lacerda](https://www.letras.mus.br/genival-lacerda/1814754/)
 - [Yauaretê - Milton Nascimento](https://www.letras.mus.br/milton-nascimento/646479/)
