@@ -20,30 +20,40 @@ Playlist completa (ATUALIZADA) em ordem alfabética por nome de música e autor:
 - Adeus Pantanal - Itamar Assumpção
 - A hora da onça - Zé e Zilda 
 - A hora da onça beber água - Itamar Assumpção 
+- Amigo da onça - Arte final
 - Amigo da onça - Jaco e Jacozinho
+- Amigo da onça - Moreira da Silva
 - Amigo da onça - Nasi & Os irmãos do Blues
 - Amigo da onça - Premeditando o breque
+- Amigo da onça - Swing Rap 
 - A onça - Fernanda Abreu
+- Bafo da onça - Beth Carvalho 
 - Bandinha do macaco - Genival Lacerda
 - Bicharada - Lan Lan
 - Borzeguim  - Tom Jobim
+- Cablocos da onça-pintada - Tainá Santos
 - Caçada de onça - Craveiro e Cravinho 
 - Caçada de onça - Rolandro Boldrin (Serrinha e Caboclinho)
 - Caçador do Ivinhema - Tião Carreiro e Pardinho
 - Cachorro valente - Jaco e Jacozinho
 - Capoeira do Arnaldo - Paulo Vanzolini
+- Casamento da onça - Raul Torres & Florêncio
 - Casinha de carandá - Nhô Pai e Nhô Fio 
 - Chegou a hora da onça beber água - Zico e Zeca
+- Chico Onça e Mané Gato - Jararaca e Ratinho 
+- Coco da onça - Toninho e Tonhão
 - Choro das mulatas  - Paulo Vanzolini
 - Como dois animais - Alceu Valença
 - Dois corações - Tonico e Tinoco
 - Do Pilá - Nuno Roland
+- É onça - Dupla Zoológica
 - Esperar o sol - Flora Matos
 - Faca que não corta - Tião Carreiro e Pardinho
 - Ferreirinha - Tião Carreiro e Pardinho
 - Filhote de onça  - Lourenço e Lourival
 - Flor de tangerina - Alceu Valença
 - Giringonça - Elza Soares
+- Lá vem a onça - Zé Fidélis
 - Leite de onça - Divino e Donizete
 - Lero lero - Edu Lobo
 - Luar do sertão  - Luiz Gonzaga
@@ -51,6 +61,7 @@ Playlist completa (ATUALIZADA) em ordem alfabética por nome de música e autor:
 - Na barriga da onça - Zé do Cedro e Tião do Pinho
 - Nego Dito - Branca Di Neve (Itamar Assumpção)
 - No tempo do onça - Carlos Galhardo 
+- O amigo da onça - Ivete Ribeiro
 - O caçador e a onça - Poeta J Sousa 
 - O cheiro da onça - Jaco e Jacozinho
 - O menino e o caçador - Lourenço e Lourival
@@ -68,6 +79,7 @@ Playlist completa (ATUALIZADA) em ordem alfabética por nome de música e autor:
 - Retrato de um forró - Luiz Gonzaga
 - Saudosa vida de peão - Tião Carreiro e Pardinho
 - Segura a nêga - Bebeto
+- Três Potes - Josias Sobrinho
 - Tudo cai - Lourenço e Lourival
 - Vamos Mariquinha - Genival Lacerda  
 - Yauaretê - Milton Nascimento 
