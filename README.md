@@ -21,7 +21,7 @@ Playlist completa (ATUALIZADA) em ordem alfabética por nome de música e autor:
 - [A hora da onça - Zé e Zilda](https://discografiabrasileira.com.br/fonograma/75455/a-hora-da-onca) 
 - [A hora da onça beber água - Itamar Assumpção](https://music.youtube.com/search?q=A+hora+da+on%C3%A7a+beber+%C3%A1gua) 
 - [Amigo da onça - Arte final](https://www.youtube.com/watch?v=0s8DwHY4P5U)
-- [Amigo da onça - Jaco e Jacozinho](https://www.letras.mus.br/jaco-jacozinho/883318/)https://www.letras.mus.br/jaco-jacozinho/883318/#1177870
+- [Amigo da onça - Jaco e Jacozinho](https://www.letras.mus.br/jaco-jacozinho/883318/)
 - [Amigo da onça - Moreira da Silva](https://www.youtube.com/watch?v=GAEw0Len2Dc)
 - [Amigo da onça - Nasi & Os irmãos do Blues](https://www.letras.mus.br/nasi-os-irmaos-do-blues/1123860/)
 - [Amigo da onça - Premeditando o breque](https://www.youtube.com/watch?v=o73hR2UJSjY)
