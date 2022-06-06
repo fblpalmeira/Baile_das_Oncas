@@ -19,7 +19,7 @@ Playlist completa (ATUALIZADA) em ordem alfabética por nome de música e autor:
 
 - [Adeus Pantanal - Itamar Assumpção](https://www.letras.com/itamar-assumpcao/272396/)
 - [A hora da onça - Zé e Zilda](https://discografiabrasileira.com.br/fonograma/75455/a-hora-da-onca) 
-- [A hora da onça beber água - Itamar Assumpção](https://music.youtube.com/search?q=A+hora+da+on%C3%A7a+beber+%C3%A1gua) 
+- [A hora da onça beber água - Itamar Assumpção] 
 - [Amigo da onça - Arte final](https://www.youtube.com/watch?v=0s8DwHY4P5U)
 - [Amigo da onça - Jaco e Jacozinho](https://www.letras.mus.br/jaco-jacozinho/883318/)
 - [Amigo da onça - Moreira da Silva](https://www.youtube.com/watch?v=GAEw0Len2Dc)
