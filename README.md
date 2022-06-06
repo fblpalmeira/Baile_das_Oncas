@@ -56,7 +56,7 @@ Playlist completa (ATUALIZADA) em ordem alfabética por nome de música e autor:
 - [Lá vem a onça - Zé Fidélis](https://discografiabrasileira.com.br/composicao/149386/la-vem-a-onca)
 - [Leite de onça - Divino e Donizete](https://www.letras.mus.br/divino-donizete/leite-de-onca)
 - [Lero lero - Edu Lobo](https://www.letras.mus.br/edu-lobo/45625)
-- [Luar do sertão  - Paulo Tapajós](https://discografiabrasileira.com.br/fonograma/117523/luar-do-sertao)*poucas versões tem o trecho que cita "a onça"
+- [Luar do sertão  - Paulo Tapajós](https://discografiabrasileira.com.br/fonograma/117523/luar-do-sertao) *algumas versões excluíram o trecho que cita "a onça"
 - [Moda da onça - Inezita Barroso](https://www.letras.mus.br/inezita-barroso/moda-da-onca)
 - [Na barriga da onça - Zé do Cedro e Tião do Pinho](https://www.letras.mus.br/ze-do-cedro-tiao-pinho/na-barriga-da-onca/)
 - [Nego Dito - Branca Di Neve (Itamar Assumpção)](https://www.letras.mus.br/branca-di-neve/1281260/)
