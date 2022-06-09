@@ -1,8 +1,8 @@
-# Baile das Onças na Semana de Celebração das Onças Pintadas do Contínuo de Paranapiacaba - 2022
+# Baile das Onças na Semana de Celebração das Onças Pintadas do Contínuo de Paranapiacaba - 2021
 
 <img src="https://github.com/fblpalmeira/Baile_das_Oncas/blob/main/data/BAILE%20DAS%20ONCAS.png" align="right" width = "500px"/>
 
-Em colaboração com o [Projeto Onças do Contínuo de Paranapiacaba](<https://www.instagram.com/oncasdocontinuodeparanapiacaba/>) e o [Coletivo Tocaya](https://www.instagram.com/coletivotocaya/) realizamos o BAILE DAS ONÇAS no dia 26 de novembro de 2022, às 20h, uma festa online temática que integrou a Semana de Celebração das Onças Pintadas do Contínuo de Paranapiacaba. 
+Em colaboração com o [Projeto Onças do Contínuo de Paranapiacaba](<https://www.instagram.com/oncasdocontinuodeparanapiacaba/>) e o [Coletivo Tocaya](https://www.instagram.com/coletivotocaya/) realizamos o BAILE DAS ONÇAS no dia 26 de novembro de 2021, às 20h, uma festa online temática que integrou a Semana de Celebração das Onças Pintadas do Contínuo de Paranapiacaba. 
 
 A apresentação ocorreu ao vivo no [Canal do TocayaTV na Twitch](https://www.twitch.tv/tocayatv), com duas horas de músicas relacionadas ao magnifíco universo das ONÇAS. A seleção musical incluiu de Tom Jobim a Tião Carreiro e Pardinho, todos cantando a onça em diferentes eixos temáticos. A gravação ficou disponível por duas semanas no canal. 
 
