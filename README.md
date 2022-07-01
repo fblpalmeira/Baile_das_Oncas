@@ -65,6 +65,7 @@ Playlist completa (ATUALIZADA) em ordem alfabética por nome de música e autor:
 - [O amigo da onça - Ivete Ribeiro](https://www.youtube.com/watch?v=QMkp9bjvMVw)
 - [O caçador e a onça - Poeta J Sousa](https://www.letras.mus.br/poeta-j-sousa/o-cacador-e-a-onca/)
 - [O cheiro da onça - Jaco e Jacozinho](https://www.letras.mus.br/jaco-jacozinho/1745471/)
+- [O encanto da orquestra](https://www.youtube.com/watch?v=ITLrthVu9wU)
 - [O menino e o caçador - Lourenço e Lourival](https://www.letras.mus.br/lourenco-e-lourival/849052/)
 - [Onça - Barbatuques](https://www.letras.mus.br/barbatuques/1800276)
 - [Onça Caetana - Sivuca](https://www.letras.mus.br/sivuca/1527949/)
