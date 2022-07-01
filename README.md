@@ -30,6 +30,7 @@ Playlist completa (ATUALIZADA) em ordem alfabética por nome de música e autor:
 - [Bafo da onça - Beth Carvalho](https://www.youtube.com/watch?v=ZUSchMcSzdM) 
 - [Bandinha do macaco - Genival Lacerda](https://www.letras.mus.br/genival-lacerda/1803304/)
 - [Bicharada - Lan Lan](https://www.letras.mus.br/lan-lan/bicharada/)
+- [Bichos escrotos - Titãs](https://www.letras.mus.br/titas/48960/)
 - [Borzeguim  - Tom Jobim](https://www.letras.mus.br/tom-jobim/86158)
 - [Cablocos da onça-pintada - Tainá Santos](https://www.letras.mus.br/taina-santos/caboclos-da-onca/)
 - [Caçada de onça - Craveiro e Cravinho](https://www.letras.mus.br/craveiro-cravinho/1560459)
