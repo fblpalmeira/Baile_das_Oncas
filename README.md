@@ -52,6 +52,7 @@ Playlist completa (ATUALIZADA) em ordem alfabética por nome de música e autor:
 - [Faca que não corta - Tião Carreiro e Pardinho](https://www.letras.mus.br/tiao-carreiro/1089161/)
 - [Ferreirinha - Tião Carreiro e Pardinho](https://www.letras.mus.br/tiao-carreiro-e-pardinho/570795/)
 - [Filhote de onça  - Lourenço e Lourival](https://www.letras.mus.br/lourenco-e-lourival/1194053)
+- [Fio da navalha - Guilherme Arantes](https://www.letras.mus.br/guilherme-arantes/113493/)  
 - [Flor de tangerina - Alceu Valença](https://www.letras.mus.br/alceu-valenca/400631)
 - [Giringonça - Elza Soares](https://www.letras.mus.br/elza-soares/1625966/)
 - [Lá vem a onça - Zé Fidélis](https://discografiabrasileira.com.br/composicao/149386/la-vem-a-onca)
