@@ -33,6 +33,7 @@ Playlist completa (ATUALIZADA) em ordem alfabética por nome de música e autor:
 - [Bichos escrotos - Titãs](https://www.letras.mus.br/titas/48960/)
 - [Borzeguim  - Tom Jobim](https://www.letras.mus.br/tom-jobim/86158)
 - [Cablocos da onça-pintada - Tainá Santos](https://www.letras.mus.br/taina-santos/caboclos-da-onca/)
+- [Caçada da onça - Amaranto](https://www.letras.mus.br/amaranto/395478/)
 - [Caçada de onça - Craveiro e Cravinho](https://www.letras.mus.br/craveiro-cravinho/1560459)
 - [Caçada de onça - Rolandro Boldrin (Serrinha e Caboclinho)](https://www.letras.mus.br/rolando-boldrin/1902110)
 - [Caçador do Ivinhema - Tião Carreiro e Pardinho](https://www.letras.mus.br/tiao-carreiro-e-pardinho/1583692)
