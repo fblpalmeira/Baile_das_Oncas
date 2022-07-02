@@ -17,18 +17,18 @@ As canções que falam sobre a onça foram pesquisadas em diferentes plataformas
 
 Playlist completa (ATUALIZADA) em ordem alfabética por nome de música e autor:
 
-- [Adeus Pantanal - Itamar Assumpção](https://www.letras.com/itamar-assumpcao/272396/)
 - [A fauna e a flora - Rubinho do Vale](https://www.letras.mus.br/rubinho-do-vale/1123218/)
 - [A hora da onça - Zé e Zilda](https://discografiabrasileira.com.br/fonograma/75455/a-hora-da-onca) 
 - [A hora da onça beber água - Suzana Salles](https://www.letras.mus.br/suzana-salles/384936/#album:suzana-salles-1994-1994)
+- [A onça - Fernanda Abreu](https://www.letras.mus.br/fernanda-abreu/128710/)
+- [A onça engraçada - Pedagogia Sonora](https://www.letras.mus.br/pedagogia-sonora/a-onca-engracada/)
+- [Adeus Pantanal - Itamar Assumpção](https://www.letras.com/itamar-assumpcao/272396/)
 - [Amigo da onça - Arte final](https://www.youtube.com/watch?v=0s8DwHY4P5U)
 - [Amigo da onça - Jaco e Jacozinho](https://www.letras.mus.br/jaco-jacozinho/883318/)
 - [Amigo da onça - Moreira da Silva](https://www.youtube.com/watch?v=GAEw0Len2Dc)
 - [Amigo da onça - Nasi & Os irmãos do Blues](https://www.letras.mus.br/nasi-os-irmaos-do-blues/1123860/)
 - [Amigo da onça - Premeditando o breque](https://www.youtube.com/watch?v=o73hR2UJSjY)
 - [Amigo da onça - Swing Rap](https://www.youtube.com/watch?v=p6Klk_XPiMo)
-- [A onça - Fernanda Abreu](https://www.letras.mus.br/fernanda-abreu/128710/)
-- [A onça engraçada - Pedagogia Sonora](https://www.letras.mus.br/pedagogia-sonora/a-onca-engracada/)
 - [Bafo da onça - Beth Carvalho](https://www.youtube.com/watch?v=ZUSchMcSzdM) 
 - [Baile de fronteira - Luiz Carlos Borges](https://www.letras.mus.br/luiz-carlos-borges/495797/)
 - [Bandinha do macaco - Genival Lacerda](https://www.letras.mus.br/genival-lacerda/1803304/)
