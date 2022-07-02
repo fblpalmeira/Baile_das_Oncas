@@ -30,6 +30,7 @@ Playlist completa (ATUALIZADA) em ordem alfabética por nome de música e autor:
 - [A onça - Fernanda Abreu](https://www.letras.mus.br/fernanda-abreu/128710/)
 - [A onça engraçada - Pedagogia Sonora](https://www.letras.mus.br/pedagogia-sonora/a-onca-engracada/)
 - [Bafo da onça - Beth Carvalho](https://www.youtube.com/watch?v=ZUSchMcSzdM) 
+- [Baile de fronteira - Luiz Carlos Borges](https://www.letras.mus.br/luiz-carlos-borges/495797/)
 - [Bandinha do macaco - Genival Lacerda](https://www.letras.mus.br/genival-lacerda/1803304/)
 - [Bicharada - Lan Lan](https://www.letras.mus.br/lan-lan/bicharada/)
 - [Bichos escrotos - Titãs](https://www.letras.mus.br/titas/48960/)
