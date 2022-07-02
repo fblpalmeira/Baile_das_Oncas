@@ -46,7 +46,7 @@ Playlist completa (ATUALIZADA) em ordem alfabética por nome de música e autor:
 - [Casinha de carandá - Nhô Pai e Nhô Fio](https://www.letras.mus.br/nho-pai-e-nho-fio/casinha-de-caranda/)
 - [Chegou a hora da onça beber água - Zico e Zeca](https://www.letras.mus.br/zico-e-zeca/1715070)
 - [Chico Onça e Mané Gato - Jararaca e Ratinho](https://discografiabrasileira.com.br/fonograma/48530/chico-onca-e-mane-gato) 
-- [Coco da onça - Toninho e Tonhão](https://www.youtube.com/watch?v=Iu1heVbaEGE)
+- [Coco da onça - Toninho e Tonhão](https://discografiabrasileira.com.br/fonograma/name/coco%20da%20on%C3%A7a/)
 - [Choro das mulatas  - Paulo Vanzolini](https://www.letras.mus.br/paulo-vanzolini/1920514)
 - [Como dois animais - Alceu Valença](https://www.letras.mus.br/alceu-valenca/44009)
 - [Do Norte - Zeca Preto](https://www.letras.mus.br/zeca-preto/989885/)
