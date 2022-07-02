@@ -92,6 +92,7 @@ Playlist completa (ATUALIZADA) em ordem alfabética por nome de música e autor:
 - [Por causa de uma paixão - Divino e Donizete](https://www.youtube.com/watch?v=hI_ld472RsA&list=PLr9gz_HDLw8O1bUUcpmYZYcyoNG6Ktiz9&index=11)
 - [Pulo do gato - Saulo Laranjeira](https://www.letras.mus.br/saulo-laranjeira/1318628)
 - [Quem me viu, quem me vê - Edson e Hudson](https://www.letras.mus.br/edson-e-hudson/quem-me-viu-quem-me-ve/)
+- [Recuerdos de Taragui - Antonio Gringo](https://www.letras.mus.br/antonio-gringo/recuerdos-de-taragui/)
 - [Retrato de um forró - Luiz Gonzaga](https://www.letras.mus.br/luiz-gonzaga/261218)
 - [Saudosa vida de peão - Tião Carreiro e Pardinho](https://www.letras.mus.br/tiao-carreiro-e-pardinho/463388)
 - [Segura a nêga - Bebeto](https://www.letras.mus.br/bebeto/209329)
