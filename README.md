@@ -75,6 +75,7 @@ Playlist completa (ATUALIZADA) em ordem alfabética por nome de música e autor:
 - [Onça Caetana - Sivuca](https://www.letras.mus.br/sivuca/1527949/)
 - [Onça de paletó - Tião Carreiro e Pardinho](https://www.letras.mus.br/tiao-carreiro-e-pardinho/1864931)
 - [Onça do Ivinhema - Divino e Donizete](https://www.letras.mus.br/divino-donizete/onca-do-ivinhema/)
+- [Onça pintada - Carlos Sartorelli](https://www.letras.mus.br/carlos-santorelli/1892221/)
 - [Onça pintada - Serrinha e Caboclinho](https://www.letras.mus.br/serrinha-caboclinho/onca-pintada)
 - [Onça pintada - Tião Carreiro e Pardinho](https://www.letras.mus.br/tiao-do-carro-pagodinho/onca-pintada)
 - [Onça pintada - Tião do Carro e Pagodinho](https://www.letras.mus.br/tiao-do-carro-pagodinho/onca-pintada/)
