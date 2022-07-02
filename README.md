@@ -27,6 +27,7 @@ Playlist completa (ATUALIZADA) em ordem alfabética por nome de música e autor:
 - [Amigo da onça - Premeditando o breque](https://www.youtube.com/watch?v=o73hR2UJSjY)
 - [Amigo da onça - Swing Rap](https://www.youtube.com/watch?v=p6Klk_XPiMo)
 - [A onça - Fernanda Abreu](https://www.letras.mus.br/fernanda-abreu/128710/)
+- [A onça engraçada - Pedagogia Sonora](https://www.letras.mus.br/pedagogia-sonora/a-onca-engracada/)
 - [Bafo da onça - Beth Carvalho](https://www.youtube.com/watch?v=ZUSchMcSzdM) 
 - [Bandinha do macaco - Genival Lacerda](https://www.letras.mus.br/genival-lacerda/1803304/)
 - [Bicharada - Lan Lan](https://www.letras.mus.br/lan-lan/bicharada/)
