@@ -87,6 +87,7 @@ Playlist completa (ATUALIZADA) em ordem alfabética por nome de música e autor:
 - [Peão - Almir Sater](https://www.letras.mus.br/almir-sater/127233/)
 - [Pé do Lageiro  - Aldair Soares](https://www.letras.mus.br/aldair-soares/pe-do-lageiro)
 - [Pulo do gato - Saulo Laranjeira](https://www.letras.mus.br/saulo-laranjeira/1318628)
+- [Quem me viu, quem me vê - Edson e Hudson](https://www.letras.mus.br/edson-e-hudson/quem-me-viu-quem-me-ve/)
 - [Retrato de um forró - Luiz Gonzaga](https://www.letras.mus.br/luiz-gonzaga/261218)
 - [Saudosa vida de peão - Tião Carreiro e Pardinho](https://www.letras.mus.br/tiao-carreiro-e-pardinho/463388)
 - [Segura a nêga - Bebeto](https://www.letras.mus.br/bebeto/209329)
