@@ -14,7 +14,9 @@ As canções que falam sobre a onça foram pesquisadas em diferentes plataformas
 
 - [Playlist Letras Terra](https://www.letras.mus.br/membros/1318340/)
 - [Playlist Spotify](https://open.spotify.com/playlist/04HwA106yZORSAis4JLAoi)
-
+- [Playlist no Deezer](https://deezer.page.link/mJ3ZqrzwrjgkB6vx5)
+- [Playlist no YouTube](https://www.youtube.com/watch?v=x5NmfNjpP3g&list=PLpkpPeN39kxLiNkBvztCPfzgcyx96NQux)
+- 
 Playlist completa (ATUALIZADA) em ordem alfabética por nome de música e autor:
 
 - [A fauna e a flora - Rubinho do Vale](https://www.letras.mus.br/rubinho-do-vale/1123218/)
