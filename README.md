@@ -18,6 +18,7 @@ As canções que falam sobre a onça foram pesquisadas em diferentes plataformas
 Playlist completa (ATUALIZADA) em ordem alfabética por nome de música e autor:
 
 - [Adeus Pantanal - Itamar Assumpção](https://www.letras.com/itamar-assumpcao/272396/)
+- [A fauna e a flora - Rubinho do Vale](https://www.letras.mus.br/rubinho-do-vale/1123218/)
 - [A hora da onça - Zé e Zilda](https://discografiabrasileira.com.br/fonograma/75455/a-hora-da-onca) 
 - [A hora da onça beber água - Suzana Salles](https://www.letras.mus.br/suzana-salles/384936/#album:suzana-salles-1994-1994)
 - [Amigo da onça - Arte final](https://www.youtube.com/watch?v=0s8DwHY4P5U)
