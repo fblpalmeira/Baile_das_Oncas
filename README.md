@@ -55,6 +55,7 @@ Playlist completa (ATUALIZADA) em ordem alfabética por nome de música e autor:
 - [Filhote de onça  - Lourenço e Lourival](https://www.letras.mus.br/lourenco-e-lourival/1194053)
 - [Fio da navalha - Guilherme Arantes](https://www.letras.mus.br/guilherme-arantes/113493/)  
 - [Flor de tangerina - Alceu Valença](https://www.letras.mus.br/alceu-valenca/400631)
+- [Força da onça pintada - Dois Sóis](https://www.letras.mus.br/dois-sois/forca-da-onca-pintada/)
 - [Giringonça - Elza Soares](https://www.letras.mus.br/elza-soares/1625966/)
 - [Lá vem a onça - Zé Fidélis](https://discografiabrasileira.com.br/composicao/149386/la-vem-a-onca)
 - [Leite de onça - Divino e Donizete](https://www.letras.mus.br/divino-donizete/leite-de-onca)
