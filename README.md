@@ -49,7 +49,7 @@ Playlist completa (ATUALIZADA) em ordem alfabética por nome de música e autor:
 - [Coco da onça - Toninho e Tonhão](https://www.youtube.com/watch?v=Iu1heVbaEGE)
 - [Choro das mulatas  - Paulo Vanzolini](https://www.letras.mus.br/paulo-vanzolini/1920514)
 - [Como dois animais - Alceu Valença](https://www.letras.mus.br/alceu-valenca/44009)
-- [Do Norte - Zexa Preto](https://www.letras.mus.br/zeca-preto/989885/)
+- [Do Norte - Zeca Preto](https://www.letras.mus.br/zeca-preto/989885/)
 - [Do Pilá - Nuno Roland](https://www.letras.mus.br/karina-buhr/do-pila/)
 - [Dois corações - Tonico e Tinoco](https://www.letras.mus.br/tonico-e-tinoco/89820/)
 - [É onça - Dupla Zoológica](https://www.youtube.com/watch?v=KxpCsg4W3yk)
