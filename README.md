@@ -74,7 +74,7 @@ Playlist completa (ATUALIZADA) em ordem alfabética por nome de música e autor:
 - [O caçador e a onça - Poeta J Sousa](https://www.letras.mus.br/poeta-j-sousa/o-cacador-e-a-onca/)
 - [O cheiro da onça - Jaco e Jacozinho](https://www.letras.mus.br/jaco-jacozinho/1745471/)
 - [O circo - Ivon Curi](https://www.letras.mus.br/ivon-curi/948424/)
-- [O encanto da orquestra](https://www.youtube.com/watch?v=ITLrthVu9wU)
+- [O encanto da orquestra - Cesar Nascimento](https://www.youtube.com/watch?v=ITLrthVu9wU)
 - [O menino e o caçador - Lourenço e Lourival](https://www.letras.mus.br/lourenco-e-lourival/849052/)
 - [Onça - Barbatuques](https://www.letras.mus.br/barbatuques/1800276)
 - [Onça / Docilmente selvagem - As Baías](https://www.letras.mus.br/as-baias/onca-docilmente-selvagem/)
