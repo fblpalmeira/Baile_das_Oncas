@@ -17,7 +17,7 @@ As canções que falam sobre a onça foram pesquisadas em diferentes plataformas
 - [Playlist no Deezer](https://deezer.page.link/mJ3ZqrzwrjgkB6vx5)
 - [Playlist no YouTube](https://www.youtube.com/watch?v=x5NmfNjpP3g&list=PLpkpPeN39kxLiNkBvztCPfzgcyx96NQux)
  
-Playlist completa (ATUALIZADA) em ordem alfabética por nome de música e autor:
+Playlist completa em ordem alfabética por nome de música e autor:
 
 - [A fauna e a flora - Rubinho do Vale](https://www.letras.mus.br/rubinho-do-vale/1123218/)
 - [A hora da onça - Zé e Zilda](https://discografiabrasileira.com.br/fonograma/75455/a-hora-da-onca) 
