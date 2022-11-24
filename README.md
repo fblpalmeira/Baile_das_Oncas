@@ -71,22 +71,22 @@ Logo disponibilizaremos a Playlist final da segunda edição, aguarde!
 - [Dupla Zoológica - É onça](https://www.youtube.com/watch?v=KxpCsg4W3yk) 
 - Edu Araujo - Onça Pintada
 - Evandro Correia - O Tango da Onça
-- Genival Lacerda - Bandinha do macaco
+- [Genival Lacerda - Bandinha do macaco](https://www.letras.mus.br/genival-lacerda/1803304/)
 - Grupo mensageiro - Onça Malvada
 - [Itamar Assumpção - A hora da onça beber água (Versão Suzana Salles 19:03)](https://www.letras.mus.br/suzana-salles/384936/#album:suzana-salles-1994-1994)
 - [Itamar Assumpção - Adeus Pantanal](https://www.letras.com/itamar-assumpcao/272396/)
 - [Itamar Assumpção - Nego Dito (Versão Branca Di Neve)](https://www.letras.mus.br/branca-di-neve/1281260/)
-- Ivete Ribeiro - O amigo da onça
-- Jararaca e Ratinho - Chico Onça e Mané Gato 
+- [Ivete Ribeiro - O amigo da onça](https://www.youtube.com/watch?v=QMkp9bjvMVw)
+- [Jararaca e Ratinho - Chico Onça e Mané Gato](https://discografiabrasileira.com.br/fonograma/48530/chico-onca-e-mane-gato) 
 - Lifanco Kariri - Raimundo e a Onça
 - [Lourenço e Lourival - O menino e o caçador](https://www.letras.mus.br/lourenco-e-lourival/849052/)
 - [Lourenço e Lourival - Tudo cai](https://www.letras.mus.br/lourenco-e-lourival/1895763/)
-- Luiz Gonzaga - Luar do sertão (algumas versões cortam o trecho que fala da onça)
+- [Paulo Tapajós - Luar do sertão](https://discografiabrasileira.com.br/fonograma/117523/luar-do-sertao) *algumas versões excluíram o trecho que cita "a onça"
 - Marku Ribas - Se a onça morrer
 - Mestre Fanho - Onça Braba
 - [Milton Nascimento - Yauaretê](https://www.letras.mus.br/milton-nascimento/646479/)
 - [Moreira da Silva - Amigo da onça](https://www.youtube.com/watch?v=GAEw0Len2Dc)
-- Nhô Pai e Nhô Fio - Casinha de carandá
+- [Nhô Pai e Nhô Fio - Casinha de carandá](https://www.letras.mus.br/nho-pai-e-nho-fio/casinha-de-caranda/)
 - [Poeta J Sousa - O caçador e a onça](https://www.letras.mus.br/poeta-j-sousa/o-cacador-e-a-onca/)
 - Pretas Caboclas - Rugido da Onça
 - [Rubinho do Vale - A fauna e a flora](https://www.letras.mus.br/rubinho-do-vale/1123218/)
@@ -97,9 +97,9 @@ Logo disponibilizaremos a Playlist final da segunda edição, aguarde!
 - [Toninho e Tonhão - Coco da onça](https://discografiabrasileira.com.br/fonograma/name/coco%20da%20on%C3%A7a/)
 - [Zé do Cedro e Tião do Pinho - Na barriga da onça](https://www.letras.mus.br/ze-do-cedro-tiao-pinho/na-barriga-da-onca/)
 - [Zé e Zilda - A hora da onça](https://discografiabrasileira.com.br/fonograma/75455/a-hora-da-onca) 
-- Zé Fidélis - Lá vem a onça
+- [Zé Fidélis - Lá vem a onça](https://discografiabrasileira.com.br/composicao/149386/la-vem-a-onca)
 - Zebeto - Onça Preta
-- Zito Borborema - Zé da onça
+- [Zito Borborema - Zé da onça](https://www.letras.mus.br/zito-borborema/ze-da-onca/)
 
 ## Plataformas musicais utilizadas nesta pesquisa
 
