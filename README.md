@@ -23,7 +23,6 @@ Playlist completa em ordem alfabética por nome de música e autor:
 - [A hora da onça - Zé e Zilda](https://discografiabrasileira.com.br/fonograma/75455/a-hora-da-onca) 
 - [A hora da onça beber água - Suzana Salles](https://www.letras.mus.br/suzana-salles/384936/#album:suzana-salles-1994-1994)
 - [A onça - Fernanda Abreu](https://www.letras.mus.br/fernanda-abreu/128710/)
-- [A onça engraçada - Pedagogia Sonora](https://www.letras.mus.br/pedagogia-sonora/a-onca-engracada/)
 - [Adeus Pantanal - Itamar Assumpção](https://www.letras.com/itamar-assumpcao/272396/)
 - [Amigo da onça - Arte final](https://www.youtube.com/watch?v=0s8DwHY4P5U)
 - [Amigo da onça - Jaco e Jacozinho](https://www.letras.mus.br/jaco-jacozinho/883318/)
