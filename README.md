@@ -2,7 +2,7 @@
 
 ## 1a. Edição (2021)
 
-<img src="https://github.com/fblpalmeira/Baile_das_Oncas/blob/main/data/BAILE%20DAS%20ONCAS.png" align="right" width = "500px"/>
+<img src="https://github.com/fblpalmeira/Baile_das_Oncas/blob/main/data/BAILE%20DAS%20ONCAS.png" align="right" width = "400px"/>
 
 Em colaboração com o [Projeto Onças do Contínuo de Paranapiacaba](<https://www.instagram.com/oncasdocontinuodeparanapiacaba/>) e o [Coletivo Tocaya](https://www.instagram.com/coletivotocaya/) realizamos o BAILE DAS ONÇAS no dia 26 de novembro de 2021, às 20h, uma festa online temática que integrou a Semana de Celebração das Onças Pintadas do Contínuo de Paranapiacaba. 
 
@@ -51,52 +51,52 @@ Agradecemos a todas as pessoas envolvidas na conservação das onças, incluindo
 
 ## 2a. Edição (2022)
 
-Vai ter Baile das Onças esse ano de novo, no dia 25/11 às 20h00, com músicas inéditas, bastante coisa regional, samba de coco, capoeira, carimbó, forró, música caipira, música popular brasileira, entre outras canções rebuscadas do Brasil profundo!
+Vai ter Baile das Onças esse ano de novo, no dia 25/11 às 20h00, com canções inéditas, bastante coisa regional, samba de coco, capoeira, carimbó, forró, música caipira, música popular brasileira, entre outras canções rebuscadas do Brasil profundo!
 
 *Playlist [preliminar] da 2a. Edição (2022):*
 
 Logo disponibilizaremos a Playlist final da segunda edição, aguarde!
 
-- Alceu Valença - Flor de tangerina
-- Almir Sater - Peão
+- [Alceu Valença - Flor de tangerina](https://www.letras.mus.br/alceu-valenca/400631)
+- [Almir Sater - Peão](https://www.letras.mus.br/almir-sater/127233/)
 - Bambas de Sampa - Olha a Onça Aí 
-- Beth Carvalho - Bafo da onça
+- [Beth Carvalho - Bafo da onça](https://www.youtube.com/watch?v=ZUSchMcSzdM) 
 - Canarinho - O Ciro E A Onça
-- Carlos Galhardo - No tempo do onça
+- [Carlos Galhardo - No tempo do onça](https://www.letras.mus.br/carlos-galhardo/819774/)
 - Carroça de Mamulengos - A Onça Comeu Meu Bezerro
 - Centro Ypiranga de Pastinha - A Onça Morreu o Mato e Meu
-- César Nascimento - O Encanto Da Orquestra 
+- [César Nascimento - O Encanto Da Orquestra](https://www.youtube.com/watch?v=ITLrthVu9wU)
 - Chico César - Pedra De Responsa
-- Divino e Donizete - Por causa de uma paixão 
-- Dupla Zoológica - É onça 
+- [Divino e Donizete - Por causa de uma paixão](https://www.youtube.com/watch?v=hI_ld472RsA&list=PLr9gz_HDLw8O1bUUcpmYZYcyoNG6Ktiz9&index=11)
+- [Dupla Zoológica - É onça](https://www.youtube.com/watch?v=KxpCsg4W3yk) 
 - Edu Araujo - Onça Pintada
 - Evandro Correia - O Tango da Onça
 - Genival Lacerda - Bandinha do macaco
 - Grupo mensageiro - Onça Malvada
-- Itamar Assumpção - A hora da onça beber água (Versão Suzana Salles 19:03)
-- Itamar Assumpção - Adeus Pantanal 
-- Itamar Assumpção - Nego Dito (Versão Branca Di Neve)
+- [Itamar Assumpção - A hora da onça beber água (Versão Suzana Salles 19:03)](https://www.letras.mus.br/suzana-salles/384936/#album:suzana-salles-1994-1994)
+- [Itamar Assumpção - Adeus Pantanal](https://www.letras.com/itamar-assumpcao/272396/)
+- [Itamar Assumpção - Nego Dito (Versão Branca Di Neve)](https://www.letras.mus.br/branca-di-neve/1281260/)
 - Ivete Ribeiro - O amigo da onça
 - Jararaca e Ratinho - Chico Onça e Mané Gato 
 - Lifanco Kariri - Raimundo e a Onça
-- Lourenço e Lourival - O menino e o caçador
-- Lourenço e Lourival - Tudo cai
+- [Lourenço e Lourival - O menino e o caçador](https://www.letras.mus.br/lourenco-e-lourival/849052/)
+- [Lourenço e Lourival - Tudo cai](https://www.letras.mus.br/lourenco-e-lourival/1895763/)
 - Luiz Gonzaga - Luar do sertão (algumas versões cortam o trecho que fala da onça)
 - Marku Ribas - Se a onça morrer
 - Mestre Fanho - Onça Braba
-- Milton Nascimento - Yauaretê
-- Moreira da Silva - Amigo da onça
+- [Milton Nascimento - Yauaretê](https://www.letras.mus.br/milton-nascimento/646479/)
+- [Moreira da Silva - Amigo da onça](https://www.youtube.com/watch?v=GAEw0Len2Dc)
 - Nhô Pai e Nhô Fio - Casinha de carandá
-- Poeta J Sousa - O caçador e a onça 
+- [Poeta J Sousa - O caçador e a onça](https://www.letras.mus.br/poeta-j-sousa/o-cacador-e-a-onca/)
 - Pretas Caboclas - Rugido da Onça
-- Rubinho do Vale - A fauna e a flora
+- [Rubinho do Vale - A fauna e a flora](https://www.letras.mus.br/rubinho-do-vale/1123218/)
 - Sambadores e Sambadeiras da Bahia - Mamãe Olha a Onça
-- Tainá Santos - Cablocos da onça-pintada
-- Titãs - Bichos escrotos
-- Tonico e Tinoco - Dois corações
-- Toninho e Tonhão - Coco da onça
-- Zé do Cedro e Tião do Pinho - Na barriga da onça
-- Zé e Zilda - A hora da onça
+- [Tainá Santos - Cablocos da onça-pintada](https://www.letras.mus.br/taina-santos/caboclos-da-onca/)
+- [Titãs - Bichos escrotos](https://www.letras.mus.br/titas/48960/)
+- [Tonico e Tinoco - Dois corações](https://www.letras.mus.br/tonico-e-tinoco/89820/)
+- [Toninho e Tonhão - Coco da onça](https://discografiabrasileira.com.br/fonograma/name/coco%20da%20on%C3%A7a/)
+- [Zé do Cedro e Tião do Pinho - Na barriga da onça](https://www.letras.mus.br/ze-do-cedro-tiao-pinho/na-barriga-da-onca/)
+- [Zé e Zilda - A hora da onça](https://discografiabrasileira.com.br/fonograma/75455/a-hora-da-onca) 
 - Zé Fidélis - Lá vem a onça
 - Zebeto - Onça Preta
 - Zito Borborema - Zé da onça
