@@ -57,7 +57,7 @@ Vai ter Baile das Onças esse ano de novo, no dia 25/11 às 20h00, com músicas 
 
 Logo disponibilizaremos a Playlist da segunda edição, aguarde!
 
-## Plataformas musicais utilizadas
+## Plataformas musicais utilizadas nesta pesquisa
 
 As canções que falam sobre a onça foram pesquisadas em diferentes plataformas de música como o Spotify, o YouTube, o YouTube Music, Letras Terra, entre outras. 
 
