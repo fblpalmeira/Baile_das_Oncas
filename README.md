@@ -13,40 +13,41 @@ Assista ao trecho de abertura do [Baile das Onças](https://www.youtube.com/watc
 Agradecemos a todas as pessoas envolvidas na conservação das onças, incluindo as pessoas que estão na linha de frente da conservação como gestores de parque, monitores, guardas-parque, comunitários locais e todos os produtores rurais que conciliam a sua produção com a conservação das onças. Viva, essa live foi para vocês!
 
 *Playlist da 1a. Edição (2021):*
-Alceu Valença - Como dois animais
-Aldair Soares - Pé do Lageiro
-Angela RoRo - Parte com o capeta 
-Barbatuques - Onça
-Bebeto - Segura a nêga
-Craveiro e Cravinho - Caçada de onça
-Divino e Donizete - Leite de onça
-Edu Lobo - Lero lero 
-Elza Soares - Giringonça
-Flora Matos - Esperar o sol
-Inezita Barroso - Moda da onça
-Jaco e Jacozinho - Amigo da onça
-Jaco e Jacozinho - Cachorro valente
-Jaco e Jacozinho - O cheiro da onça
-Josias Sobrinho - Três Potes
-Lourenço e Lourival - Filhote de onça 
-Luiz Gonzaga - Retrato de um forró
-Nuno Roland - Do Pilá
-Paulo Vanzolini - Capoeira do Arnaldo 
-Raul Torres & Florêncio - Casamento da onça 
-Rolandro Boldrin - Caçada de onça
-Saulo Laranjeira - Pulo do gato (Xangai)
-Serrinha e Caboclinho - Caçada de onça
-Serrinha e Caboclinho - Onça pintada 
-Sivuca - Onça Caetana
-Tião Carreiro e Pardinho - Caçador do Ivinhema
-Tião Carreiro e Pardinho - Faca que não corta 
-Tião Carreiro e Pardinho - Ferreirinha
-Tião Carreiro e Pardinho - Onça de paletó
-Tião Carreiro e Pardinho - Saudosa vida de peão
-Tião Carreiro e Pardinho - Onça pintada
-Tom Jobim - Borzeguim 
-Zeca Baleiro - Onça pintada
-Zico e Zeca - Chegou a hora da onça beber água
+
+- Alceu Valença - Como dois animais
+- Aldair Soares - Pé do Lageiro
+- Angela RoRo - Parte com o capeta 
+- Barbatuques - Onça
+- Bebeto - Segura a nêga
+- Craveiro e Cravinho - Caçada de onça
+- Divino e Donizete - Leite de onça
+- Edu Lobo - Lero lero 
+- Elza Soares - Giringonça
+- Flora Matos - Esperar o sol
+- Inezita Barroso - Moda da onça
+- Jaco e Jacozinho - Amigo da onça
+- Jaco e Jacozinho - Cachorro valente
+- Jaco e Jacozinho - O cheiro da onça
+- Josias Sobrinho - Três Potes
+- Lourenço e Lourival - Filhote de onça 
+- Luiz Gonzaga - Retrato de um forró
+- Nuno Roland - Do Pilá
+- Paulo Vanzolini - Capoeira do Arnaldo 
+- Raul Torres & Florêncio - Casamento da onça 
+- Rolandro Boldrin - Caçada de onça
+- Saulo Laranjeira - Pulo do gato (Xangai)
+- Serrinha e Caboclinho - Caçada de onça
+- Serrinha e Caboclinho - Onça pintada 
+- Sivuca - Onça Caetana
+- Tião Carreiro e Pardinho - Caçador do Ivinhema
+- Tião Carreiro e Pardinho - Faca que não corta 
+- Tião Carreiro e Pardinho - Ferreirinha
+- Tião Carreiro e Pardinho - Onça de paletó
+- Tião Carreiro e Pardinho - Saudosa vida de peão
+- Tião Carreiro e Pardinho - Onça pintada
+- Tom Jobim - Borzeguim 
+- Zeca Baleiro - Onça pintada
+- Zico e Zeca - Chegou a hora da onça beber água
 
 ## 2a. Edição (2022)
 
