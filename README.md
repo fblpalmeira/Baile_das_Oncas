@@ -51,7 +51,7 @@ Agradecemos a todas as pessoas envolvidas na conservação das onças, incluindo
 
 ## 2a. Edição (2022)
 
-Vai ter Baile das Onças esse ano de novo, no dia 25/11 às 20h00, com músicas inéditas, bastante coisa regional, samba de coco, capoeira, carimbó, entre outras canções rebuscadas do Brasil profundo!
+Vai ter Baile das Onças esse ano de novo, no dia 25/11 às 20h00, com músicas inéditas, bastante coisa regional, samba de coco, capoeira, carimbó, forró, música caipira, música popular brasileira, entre outras canções rebuscadas do Brasil profundo!
 
 *Playlist da 2a. Edição (2022):*
 
