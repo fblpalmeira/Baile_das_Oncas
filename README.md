@@ -73,9 +73,9 @@ Logo disponibilizaremos a Playlist final da segunda edição, aguarde!
 - Evandro Correia - O Tango da Onça
 - [Genival Lacerda - Bandinha do macaco](https://www.letras.mus.br/genival-lacerda/1803304/)
 - Grupo mensageiro - Onça Malvada
-- [Itamar Assumpção - A hora da onça beber água (Versão Suzana Salles 19:03)](https://www.letras.mus.br/suzana-salles/384936/#album:suzana-salles-1994-1994)
+- [Itamar Assumpção - A hora da onça beber água](https://www.letras.mus.br/suzana-salles/384936/#album:suzana-salles-1994-1994) (Versão Suzana Salles 19:03)
 - [Itamar Assumpção - Adeus Pantanal](https://www.letras.com/itamar-assumpcao/272396/)
-- [Itamar Assumpção - Nego Dito (Versão Branca Di Neve)](https://www.letras.mus.br/branca-di-neve/1281260/)
+- [Itamar Assumpção - Nego Dito](https://www.letras.mus.br/branca-di-neve/1281260/) (Versão Branca Di Neve)
 - [Ivete Ribeiro - O amigo da onça](https://www.youtube.com/watch?v=QMkp9bjvMVw)
 - [Jararaca e Ratinho - Chico Onça e Mané Gato](https://discografiabrasileira.com.br/fonograma/48530/chico-onca-e-mane-gato) 
 - Lifanco Kariri - Raimundo e a Onça
