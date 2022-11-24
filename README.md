@@ -53,9 +53,53 @@ Agradecemos a todas as pessoas envolvidas na conservação das onças, incluindo
 
 Vai ter Baile das Onças esse ano de novo, no dia 25/11 às 20h00, com músicas inéditas, bastante coisa regional, samba de coco, capoeira, carimbó, forró, música caipira, música popular brasileira, entre outras canções rebuscadas do Brasil profundo!
 
-*Playlist da 2a. Edição (2022):*
+*Playlist [preliminar] da 2a. Edição (2022):*
 
-Logo disponibilizaremos a Playlist da segunda edição, aguarde!
+Logo disponibilizaremos a Playlist final da segunda edição, aguarde!
+
+- Alceu Valença - Flor de tangerina
+- Almir Sater - Peão
+- Bambas de Sampa - Olha a Onça Aí 
+- Beth Carvalho - Bafo da onça
+- Canarinho - O Ciro E A Onça
+- Carlos Galhardo - No tempo do onça
+- Carroça de Mamulengos - A Onça Comeu Meu Bezerro
+- Centro Ypiranga de Pastinha - A Onça Morreu o Mato e Meu
+- César Nascimento - O Encanto Da Orquestra 
+- Chico César - Pedra De Responsa
+- Divino e Donizete - Por causa de uma paixão 
+- Dupla Zoológica - É onça 
+- Edu Araujo - Onça Pintada
+- Evandro Correia - O Tango da Onça
+- Genival Lacerda - Bandinha do macaco
+- Grupo mensageiro - Onça Malvada
+- Itamar Assumpção - A hora da onça beber água (Versão Suzana Salles 19:03)
+- Itamar Assumpção - Adeus Pantanal 
+- Itamar Assumpção - Nego Dito (Versão Branca Di Neve)
+- Ivete Ribeiro - O amigo da onça
+- Jararaca e Ratinho - Chico Onça e Mané Gato 
+- Lifanco Kariri - Raimundo e a Onça
+- Lourenço e Lourival - O menino e o caçador
+- Lourenço e Lourival - Tudo cai
+- Luiz Gonzaga - Luar do sertão (algumas versões cortam o trecho que fala da onça)
+- Marku Ribas - Se a onça morrer
+- Mestre Fanho - Onça Braba
+- Milton Nascimento - Yauaretê
+- Moreira da Silva - Amigo da onça
+- Nhô Pai e Nhô Fio - Casinha de carandá
+- Poeta J Sousa - O caçador e a onça 
+- Pretas Caboclas - Rugido da Onça
+- Rubinho do Vale - A fauna e a flora
+- Sambadores e Sambadeiras da Bahia - Mamãe Olha a Onça
+- Tainá Santos - Cablocos da onça-pintada
+- Titãs - Bichos escrotos
+- Tonico e Tinoco - Dois corações
+- Toninho e Tonhão - Coco da onça
+- Zé do Cedro e Tião do Pinho - Na barriga da onça
+- Zé e Zilda - A hora da onça
+- Zé Fidélis - Lá vem a onça
+- Zebeto - Onça Preta
+- Zito Borborema - Zé da onça
 
 ## Plataformas musicais utilizadas nesta pesquisa
 
