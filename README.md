@@ -63,10 +63,10 @@ Logo disponibilizaremos a Playlist final da segunda edição, aguarde!
 - [Beth Carvalho - Bafo da onça](https://www.youtube.com/watch?v=ZUSchMcSzdM) 
 - [Canarinho - O Ciro E A Onça](https://www.youtube.com/watch?v=jMAi6PpKVBM&list=PLpkpPeN39kxLiNkBvztCPfzgcyx96NQux&index=104)
 - [Carlos Galhardo - No tempo do onça](https://www.letras.mus.br/carlos-galhardo/819774/)
-- Carroça de Mamulengos - A Onça Comeu Meu Bezerro
+- [Carroça de Mamulengos - A Onça Comeu Meu Bezerro](https://www.youtube.com/watch?v=KyWoy78BpVQ&list=PLpkpPeN39kxLiNkBvztCPfzgcyx96NQux&index=122)
 - [Centro Ypiranga de Pastinha - A Onça Morreu o Mato e Meu](https://www.youtube.com/watch?v=uPHdlVe9ZYE&list=PLpkpPeN39kxLiNkBvztCPfzgcyx96NQux&index=106)
 - [César Nascimento - O Encanto Da Orquestra](https://www.youtube.com/watch?v=ITLrthVu9wU)
-- Chico César - Pedra De Responsa
+- [Chico César - Pedra De Responsa](https://www.youtube.com/watch?v=BPHkPi9xUMA&list=PLpkpPeN39kxLiNkBvztCPfzgcyx96NQux&index=125)
 - [Divino e Donizete - Por causa de uma paixão](https://www.youtube.com/watch?v=hI_ld472RsA&list=PLr9gz_HDLw8O1bUUcpmYZYcyoNG6Ktiz9&index=11)
 - [Dupla Zoológica - É onça](https://www.youtube.com/watch?v=KxpCsg4W3yk) 
 - Edu Araujo - Onça Pintada
@@ -83,14 +83,14 @@ Logo disponibilizaremos a Playlist final da segunda edição, aguarde!
 - [Lourenço e Lourival - Tudo cai](https://www.letras.mus.br/lourenco-e-lourival/1895763/)
 - [Paulo Tapajós - Luar do sertão](https://discografiabrasileira.com.br/fonograma/117523/luar-do-sertao) *algumas versões excluíram o trecho que cita "a onça"
 - [Marku Ribas - Se a onça morrer](https://www.youtube.com/watch?v=0mJE7fRWuto&list=PLpkpPeN39kxLiNkBvztCPfzgcyx96NQux&index=101)
-- Mestre Fanho - Onça Braba
+- [Mestre Fanho - Onça Braba](https://www.youtube.com/watch?v=xhNtwslY4d0&list=PLpkpPeN39kxLiNkBvztCPfzgcyx96NQux&index=119)
 - [Milton Nascimento - Yauaretê](https://www.letras.mus.br/milton-nascimento/646479/)
 - [Moreira da Silva - Amigo da onça](https://www.youtube.com/watch?v=GAEw0Len2Dc)
 - [Nhô Pai e Nhô Fio - Casinha de carandá](https://www.letras.mus.br/nho-pai-e-nho-fio/casinha-de-caranda/)
 - [Poeta J Sousa - O caçador e a onça](https://www.letras.mus.br/poeta-j-sousa/o-cacador-e-a-onca/)
-- [Pretas Caboclas - Rugido da Onça[(https://www.youtube.com/watch?v=hVjKV5G96R4&list=PLpkpPeN39kxLiNkBvztCPfzgcyx96NQux&index=94)
+- [Pretas Caboclas - Rugido da Onça](https://www.youtube.com/watch?v=hVjKV5G96R4&list=PLpkpPeN39kxLiNkBvztCPfzgcyx96NQux&index=94)
 - [Rubinho do Vale - A fauna e a flora](https://www.letras.mus.br/rubinho-do-vale/1123218/)
-- Sambadores e Sambadeiras da Bahia - Mamãe Olha a Onça
+- [Sambadores e Sambadeiras da Bahia - Mamãe Olha a Onça](https://www.youtube.com/watch?v=DeQgxdY1WaU&list=PLpkpPeN39kxLiNkBvztCPfzgcyx96NQux&index=126)
 - [Tainá Santos - Cablocos da onça-pintada](https://www.letras.mus.br/taina-santos/caboclos-da-onca/)
 - [Titãs - Bichos escrotos](https://www.letras.mus.br/titas/48960/)
 - [Tonico e Tinoco - Dois corações](https://www.letras.mus.br/tonico-e-tinoco/89820/)
