@@ -36,7 +36,7 @@ Agradecemos a todas as pessoas envolvidas na conservação das onças, incluindo
 - [Raul Torres & Florêncio - Casamento da onça](https://www.youtube.com/watch?v=8BobpvxZhmY) 
 - [Rolandro Boldrin - Caçada de onça](https://www.letras.mus.br/rolando-boldrin/1902110)
 - [Saulo Laranjeira - Pulo do gato (Xangai)](https://www.letras.mus.br/saulo-laranjeira/1318628)
-- [Serrinha e Caboclinho - Caçada de onça]
+- [Serrinha e Caboclinho - Caçada de onça](https://www.youtube.com/watch?v=QS4LpjqDEDA)
 - [Serrinha e Caboclinho - Onça pintada](https://www.letras.mus.br/serrinha-caboclinho/onca-pintada)
 - [Sivuca - Onça Caetana](https://www.letras.mus.br/sivuca/1527949/)
 - [Tião Carreiro e Pardinho - Caçador do Ivinhema](https://www.letras.mus.br/tiao-carreiro-e-pardinho/1583692)
