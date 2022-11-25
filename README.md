@@ -69,7 +69,7 @@ Logo disponibilizaremos a Playlist final da segunda edição, aguarde!
 - [Chico César - Pedra De Responsa](https://www.youtube.com/watch?v=BPHkPi9xUMA&list=PLpkpPeN39kxLiNkBvztCPfzgcyx96NQux&index=125)
 - [Divino e Donizete - Por causa de uma paixão](https://www.youtube.com/watch?v=hI_ld472RsA&list=PLr9gz_HDLw8O1bUUcpmYZYcyoNG6Ktiz9&index=11)
 - [Dupla Zoológica - É onça](https://www.youtube.com/watch?v=KxpCsg4W3yk) 
-- Edu Araujo - Onça Pintada
+- [Edu Araujo - Onça Pintada](https://www.youtube.com/watch?v=RmhAhIqR86U)
 - [Evandro Correia - O Tango da Onça](https://www.youtube.com/watch?v=CaYWuihj4BM&list=PLpkpPeN39kxLiNkBvztCPfzgcyx96NQux&index=108)
 - [Genival Lacerda - Bandinha do macaco](https://www.letras.mus.br/genival-lacerda/1803304/)
 - [Grupo mensageiro - Onça Malvada](https://www.youtube.com/watch?v=lNS3HzgKf-w&list=PLpkpPeN39kxLiNkBvztCPfzgcyx96NQux&index=107)
