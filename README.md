@@ -14,25 +14,25 @@ Agradecemos a todas as pessoas envolvidas na conservação das onças, incluindo
 
 *Playlist da 1a. Edição (2021):*
 
-- Alceu Valença - Como dois animais
-- Aldair Soares - Pé do Lageiro
-- Angela RoRo - Parte com o capeta 
-- Barbatuques - Onça
-- Bebeto - Segura a nêga
-- Craveiro e Cravinho - Caçada de onça
-- Divino e Donizete - Leite de onça
-- Edu Lobo - Lero lero 
-- Elza Soares - Giringonça
-- Flora Matos - Esperar o sol
-- Inezita Barroso - Moda da onça
-- Jaco e Jacozinho - Amigo da onça
-- Jaco e Jacozinho - Cachorro valente
-- Jaco e Jacozinho - O cheiro da onça
-- Josias Sobrinho - Três Potes
-- Lourenço e Lourival - Filhote de onça 
-- Luiz Gonzaga - Retrato de um forró
-- Nuno Roland - Do Pilá
-- Paulo Vanzolini - Capoeira do Arnaldo 
+- [Alceu Valença - Como dois animais](https://www.letras.mus.br/alceu-valenca/44009)
+- [Aldair Soares - Pé do Lageiro](https://www.letras.mus.br/aldair-soares/pe-do-lageiro)
+- [Angela RoRo - Parte com o capeta](https://www.letras.mus.br/angela-ro-ro/parte-com-o-capeta) 
+- [Barbatuques - Onça](https://www.letras.mus.br/barbatuques/1800276)
+- [Bebeto - Segura a nêga](https://www.letras.mus.br/bebeto/209329)
+- [Craveiro e Cravinho - Caçada de onça](https://www.letras.mus.br/craveiro-cravinho/1560459)
+- [Divino e Donizete - Leite de onça](https://www.letras.mus.br/divino-donizete/leite-de-onca)
+- [Edu Lobo - Lero lero](https://www.letras.mus.br/edu-lobo/45625) 
+- [Elza Soares - Giringonça](https://www.letras.mus.br/elza-soares/1625966/)
+- [Flora Matos - Esperar o sol](https://www.letras.mus.br/flora-matos/esperar-o-sol/)
+- [Inezita Barroso - Moda da onça](https://www.letras.mus.br/inezita-barroso/moda-da-onca)
+- [Jaco e Jacozinho - Amigo da onça](https://www.letras.mus.br/jaco-jacozinho/883318/)
+- [Jaco e Jacozinho - Cachorro valente](https://www.letras.mus.br/jaco-jacozinho/883320)
+- [Jaco e Jacozinho - O cheiro da onça](https://www.letras.mus.br/jaco-jacozinho/1745471/)
+- [Josias Sobrinho - Três Potes](https://www.youtube.com/watch?v=jyKtKyG3KgI)
+- [Lourenço e Lourival - Filhote de onça](https://www.letras.mus.br/lourenco-e-lourival/1194053) 
+- [Luiz Gonzaga - Retrato de um forró](https://www.letras.mus.br/luiz-gonzaga/261218)
+- [Nuno Roland - Do Pilá](https://www.letras.mus.br/karina-buhr/do-pila/)
+- [Paulo Vanzolini - Capoeira do Arnaldo](https://www.letras.mus.br/paulo-vanzolini/397724) 
 - Raul Torres & Florêncio - Casamento da onça 
 - Rolandro Boldrin - Caçada de onça
 - Saulo Laranjeira - Pulo do gato (Xangai)
