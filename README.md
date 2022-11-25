@@ -33,21 +33,21 @@ Agradecemos a todas as pessoas envolvidas na conservação das onças, incluindo
 - [Luiz Gonzaga - Retrato de um forró](https://www.letras.mus.br/luiz-gonzaga/261218)
 - [Nuno Roland - Do Pilá](https://www.letras.mus.br/karina-buhr/do-pila/)
 - [Paulo Vanzolini - Capoeira do Arnaldo](https://www.letras.mus.br/paulo-vanzolini/397724) 
-- Raul Torres & Florêncio - Casamento da onça 
-- Rolandro Boldrin - Caçada de onça
-- Saulo Laranjeira - Pulo do gato (Xangai)
-- Serrinha e Caboclinho - Caçada de onça
-- Serrinha e Caboclinho - Onça pintada 
-- Sivuca - Onça Caetana
-- Tião Carreiro e Pardinho - Caçador do Ivinhema
-- Tião Carreiro e Pardinho - Faca que não corta 
-- Tião Carreiro e Pardinho - Ferreirinha
-- Tião Carreiro e Pardinho - Onça de paletó
-- Tião Carreiro e Pardinho - Saudosa vida de peão
-- Tião Carreiro e Pardinho - Onça pintada
-- Tom Jobim - Borzeguim 
-- Zeca Baleiro - Onça pintada
-- Zico e Zeca - Chegou a hora da onça beber água
+- [Raul Torres & Florêncio - Casamento da onça](https://www.youtube.com/watch?v=8BobpvxZhmY) 
+- [Rolandro Boldrin - Caçada de onça](https://www.letras.mus.br/rolando-boldrin/1902110)
+- [Saulo Laranjeira - Pulo do gato (Xangai)](https://www.letras.mus.br/saulo-laranjeira/1318628)
+- [Serrinha e Caboclinho - Caçada de onça]
+- [Serrinha e Caboclinho - Onça pintada](https://www.letras.mus.br/serrinha-caboclinho/onca-pintada)
+- [Sivuca - Onça Caetana](https://www.letras.mus.br/sivuca/1527949/)
+- [Tião Carreiro e Pardinho - Caçador do Ivinhema](https://www.letras.mus.br/tiao-carreiro-e-pardinho/1583692)
+- [Tião Carreiro e Pardinho - Faca que não corta](https://www.letras.mus.br/tiao-carreiro/1089161/) 
+- [Tião Carreiro e Pardinho - Ferreirinha](https://www.letras.mus.br/tiao-carreiro-e-pardinho/570795/)
+- [Tião Carreiro e Pardinho - Onça de paletó](https://www.letras.mus.br/tiao-carreiro-e-pardinho/1864931)
+- [Tião Carreiro e Pardinho - Saudosa vida de peão](https://www.letras.mus.br/tiao-carreiro-e-pardinho/463388)
+- [Tião Carreiro e Pardinho - Onça pintada](https://www.letras.mus.br/tiao-do-carro-pagodinho/onca-pintada)
+- [Tom Jobim - Borzeguim](https://www.letras.mus.br/tom-jobim/86158) 
+- [Zeca Baleiro - Onça pintada](https://www.letras.mus.br/zeca-baleiro/onca-pintada)
+- [Zico e Zeca - Chegou a hora da onça beber água](https://www.letras.mus.br/zico-e-zeca/1715070)
 
 ## 2a. Edição (2022)
 
