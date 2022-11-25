@@ -55,8 +55,6 @@ Vai ter Baile das Onças esse ano de novo, no dia 25/11 às 20h00, no [Canal do 
 
 *Playlist [preliminar] da 2a. Edição (2022):*
 
-Logo disponibilizaremos a Playlist final da segunda edição, aguarde!
-
 - [Alceu Valença - Flor de tangerina](https://www.letras.mus.br/alceu-valenca/400631)
 - [Almir Sater - Peão](https://www.letras.mus.br/almir-sater/127233/)
 - [Bambas de Sampa - Olha a Onça Aí](https://www.youtube.com/watch?v=v5E5PEG9lfE&list=PLpkpPeN39kxLiNkBvztCPfzgcyx96NQux&index=97) 
