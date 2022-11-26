@@ -113,10 +113,10 @@ A pesquisa sobre a presença da onça na Música Popular Brasileira continua sen
 
 ## Plataformas musicais
 
-[Playlist no Letras Terra](https://www.letras.mus.br/membros/1318340/)
-[Playlist no Spotify](https://open.spotify.com/playlist/04HwA106yZORSAis4JLAoi?si=142aa44ff745464e)
-[Playlist no Deezer](https://deezer.page.link/mJ3ZqrzwrjgkB6vx5)
-[Playlist no YouTube](https://www.youtube.com/watch?v=x5NmfNjpP3g&list=PLpkpPeN39kxLiNkBvztCPfzgcyx96NQux)
+- [Playlist no Letras Terra](https://www.letras.mus.br/membros/1318340/)
+- [Playlist no Spotify](https://open.spotify.com/playlist/04HwA106yZORSAis4JLAoi?si=142aa44ff745464e)
+- [Playlist no Deezer](https://deezer.page.link/mJ3ZqrzwrjgkB6vx5)
+- [Playlist no YouTube](https://www.youtube.com/watch?v=x5NmfNjpP3g&list=PLpkpPeN39kxLiNkBvztCPfzgcyx96NQux)
 
 ## Playlist completa em ordem alfabética por Nome de música:
 
