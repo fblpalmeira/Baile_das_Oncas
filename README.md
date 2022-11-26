@@ -53,7 +53,7 @@ Agradecemos a todas as pessoas envolvidas na conservação das onças, incluindo
 
 <img src="https://github.com/fblpalmeira/Baile_das_Oncas/blob/main/data/BAILE%20DAS%20ON%C3%87AS_2022.jpg" align="right" width = "400px"/>
 
-Vai ter Baile das Onças esse ano de novo, no dia 25/11 às 20h00, no [Canal do TocayaTV na Twitch](https://www.twitch.tv/tocayatv), com canções inéditas, bastante coisa regional, samba de coco, capoeira, carimbó, forró, música caipira, música popular brasileira, entre outras canções rebuscadas do Brasil profundo!
+Vai ter Baile das Onças esse ano de novo, no dia 25/11 às 20h00, no [Canal do TocayaTV na Twitch](https://www.twitch.tv/tocayatv), com canções inéditas, bastante coisa regional, samba de coco, capoeira, carimbó, forró, música caipira, música popular brasileira, entre outras canções rebuscadas do Brasil profundo.
 
 Confira o Baile das Onças no site do [Coletivo Tocaya](https://coletivotocaya.com.br/2022/11/25/bailedasoncas2022/)
 
