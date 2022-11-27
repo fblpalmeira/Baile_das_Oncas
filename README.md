@@ -118,7 +118,7 @@ A pesquisa sobre a presença da onça na Música Popular Brasileira continua sen
 - [Playlist no Deezer](https://deezer.page.link/mJ3ZqrzwrjgkB6vx5)
 - [Playlist no YouTube](https://www.youtube.com/watch?v=x5NmfNjpP3g&list=PLpkpPeN39kxLiNkBvztCPfzgcyx96NQux)
 
-## Playlist completa em ordem alfabética por *Nome do(a) Cantor(a)*:
+## Playlist completa em ordem alfabética por Nome do(a) Intérprete*:
 
 - [Alceu Valença - Como dois animais](https://www.letras.mus.br/alceu-valenca/44009)
 - [Alceu Valença - Flor de tangerina](https://www.letras.mus.br/alceu-valenca/400631)
