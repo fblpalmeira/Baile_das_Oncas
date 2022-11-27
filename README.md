@@ -167,48 +167,36 @@ A pesquisa sobre a presença da onça na Música Popular Brasileira continua sen
 - [Moreira da Silva - Amigo da onça](https://www.youtube.com/watch?v=GAEw0Len2Dc)
 - [Nhô Pai e Nhô Fio - Casinha de carandá](https://www.letras.mus.br/nho-pai-e-nho-fio/casinha-de-caranda/)
 - [Nuno Roland - Do Pilá](https://www.letras.mus.br/karina-buhr/do-pila/)
-- 
 - [Paulo Tapajós - Luar do sertão](https://discografiabrasileira.com.br/fonograma/117523/luar-do-sertao) *algumas versões excluíram o trecho que cita "a onça"
 - [Paulo Vanzolini - Capoeira do Arnaldo](https://www.letras.mus.br/paulo-vanzolini/397724) 
+- [Poeta J Sousa - O caçador e a onça](https://www.letras.mus.br/poeta-j-sousa/o-cacador-e-a-onca/)
+- [Pretas Caboclas - Rugido da Onça](https://www.youtube.com/watch?v=hVjKV5G96R4&list=PLpkpPeN39kxLiNkBvztCPfzgcyx96NQux&index=94)
 - [Raul Torres & Florêncio - Casamento da onça](https://www.youtube.com/watch?v=8BobpvxZhmY) 
 - [Rolandro Boldrin - Caçada de onça](https://www.letras.mus.br/rolando-boldrin/1902110)
+- [Rubinho do Vale - A fauna e a flora](https://www.letras.mus.br/rubinho-do-vale/1123218/)
+- [Sambadores e Sambadeiras da Bahia - Mamãe Olha a Onça](https://www.youtube.com/watch?v=DeQgxdY1WaU&list=PLpkpPeN39kxLiNkBvztCPfzgcyx96NQux&index=126)
 - [Saulo Laranjeira - Pulo do gato (Xangai)](https://www.letras.mus.br/saulo-laranjeira/1318628)
 - [Serrinha e Caboclinho - Caçada de onça](https://www.youtube.com/watch?v=QS4LpjqDEDA)
 - [Serrinha e Caboclinho - Onça pintada](https://www.letras.mus.br/serrinha-caboclinho/onca-pintada)
 - [Sivuca - Onça Caetana](https://www.letras.mus.br/sivuca/1527949/)
+- [Tainá Santos - Cablocos da onça-pintada](https://www.letras.mus.br/taina-santos/caboclos-da-onca/)
 - [Tião Carreiro e Pardinho - Caçador do Ivinhema](https://www.letras.mus.br/tiao-carreiro-e-pardinho/1583692)
 - [Tião Carreiro e Pardinho - Faca que não corta](https://www.letras.mus.br/tiao-carreiro/1089161/) 
 - [Tião Carreiro e Pardinho - Ferreirinha](https://www.letras.mus.br/tiao-carreiro-e-pardinho/570795/)
 - [Tião Carreiro e Pardinho - Onça de paletó](https://www.letras.mus.br/tiao-carreiro-e-pardinho/1864931)
 - [Tião Carreiro e Pardinho - Saudosa vida de peão](https://www.letras.mus.br/tiao-carreiro-e-pardinho/463388)
 - [Tião Carreiro e Pardinho - Onça pintada](https://www.letras.mus.br/tiao-do-carro-pagodinho/onca-pintada)
+- [Titãs - Bichos escrotos](https://www.letras.mus.br/titas/48960/) 
 - [Tom Jobim - Borzeguim](https://www.letras.mus.br/tom-jobim/86158) 
-- [Zeca Baleiro - Onça pintada](https://www.letras.mus.br/zeca-baleiro/onca-pintada)
-- [Zico e Zeca - Chegou a hora da onça beber água](https://www.letras.mus.br/zico-e-zeca/1715070)
-
-
-
-
-
-
-
-
-
-
-- [Poeta J Sousa - O caçador e a onça](https://www.letras.mus.br/poeta-j-sousa/o-cacador-e-a-onca/)
-- [Pretas Caboclas - Rugido da Onça](https://www.youtube.com/watch?v=hVjKV5G96R4&list=PLpkpPeN39kxLiNkBvztCPfzgcyx96NQux&index=94)
-- [Rubinho do Vale - A fauna e a flora](https://www.letras.mus.br/rubinho-do-vale/1123218/)
-- [Sambadores e Sambadeiras da Bahia - Mamãe Olha a Onça](https://www.youtube.com/watch?v=DeQgxdY1WaU&list=PLpkpPeN39kxLiNkBvztCPfzgcyx96NQux&index=126)
-- [Tainá Santos - Cablocos da onça-pintada](https://www.letras.mus.br/taina-santos/caboclos-da-onca/)
-- [Titãs - Bichos escrotos](https://www.letras.mus.br/titas/48960/)
 - [Tonico e Tinoco - Dois corações](https://www.letras.mus.br/tonico-e-tinoco/89820/)
 - [Toninho e Tonhão - Coco da onça](https://discografiabrasileira.com.br/fonograma/name/coco%20da%20on%C3%A7a/)
 - [Zé do Cedro e Tião do Pinho - Na barriga da onça](https://www.letras.mus.br/ze-do-cedro-tiao-pinho/na-barriga-da-onca/)
 - [Zé e Zilda - A hora da onça](https://discografiabrasileira.com.br/fonograma/75455/a-hora-da-onca) 
 - [Zé Fidélis - Lá vem a onça](https://discografiabrasileira.com.br/composicao/149386/la-vem-a-onca)
 - [Zebeto - Onça Preta](https://www.youtube.com/watch?v=RC7j5YtwOPk&list=PLpkpPeN39kxLiNkBvztCPfzgcyx96NQux&index=91)
+- [Zeca Baleiro - Onça pintada](https://www.letras.mus.br/zeca-baleiro/onca-pintada)
+- [Zico e Zeca - Chegou a hora da onça beber água](https://www.letras.mus.br/zico-e-zeca/1715070)
 - [Zito Borborema - Zé da onça](https://www.letras.mus.br/zito-borborema/ze-da-onca/)
-
 
 ## Playlist completa em ordem alfabética por *Nome de Música*:
 
