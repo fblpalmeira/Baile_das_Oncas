@@ -83,12 +83,12 @@ Confira o Baile das Onças no site do [Coletivo Tocaya](https://coletivotocaya.c
 - [Lifanco Kariri - Raimundo e a Onça](https://www.youtube.com/watch?v=aG7qlC2E4E0&list=PLpkpPeN39kxLiNkBvztCPfzgcyx96NQux&index=111)
 - [Lourenço e Lourival - O menino e o caçador](https://www.letras.mus.br/lourenco-e-lourival/849052/)
 - [Lourenço e Lourival - Tudo cai](https://www.letras.mus.br/lourenco-e-lourival/1895763/)
-- [Paulo Tapajós - Luar do sertão](https://discografiabrasileira.com.br/fonograma/117523/luar-do-sertao) *algumas versões excluíram o trecho que cita "a onça"
 - [Marku Ribas - Se a onça morrer](https://www.youtube.com/watch?v=0mJE7fRWuto&list=PLpkpPeN39kxLiNkBvztCPfzgcyx96NQux&index=101)
 - [Mestre Fanho - Onça Braba](https://www.youtube.com/watch?v=xhNtwslY4d0&list=PLpkpPeN39kxLiNkBvztCPfzgcyx96NQux&index=119)
 - [Milton Nascimento - Yauaretê](https://www.letras.mus.br/milton-nascimento/646479/)
 - [Moreira da Silva - Amigo da onça](https://www.youtube.com/watch?v=GAEw0Len2Dc)
 - [Nhô Pai e Nhô Fio - Casinha de carandá](https://www.letras.mus.br/nho-pai-e-nho-fio/casinha-de-caranda/)
+- [Paulo Tapajós - Luar do sertão](https://discografiabrasileira.com.br/fonograma/117523/luar-do-sertao) *algumas versões excluíram o trecho que cita "a onça"
 - [Poeta J Sousa - O caçador e a onça](https://www.letras.mus.br/poeta-j-sousa/o-cacador-e-a-onca/)
 - [Pretas Caboclas - Rugido da Onça](https://www.youtube.com/watch?v=hVjKV5G96R4&list=PLpkpPeN39kxLiNkBvztCPfzgcyx96NQux&index=94)
 - [Rubinho do Vale - A fauna e a flora](https://www.letras.mus.br/rubinho-do-vale/1123218/)
@@ -118,7 +118,99 @@ A pesquisa sobre a presença da onça na Música Popular Brasileira continua sen
 - [Playlist no Deezer](https://deezer.page.link/mJ3ZqrzwrjgkB6vx5)
 - [Playlist no YouTube](https://www.youtube.com/watch?v=x5NmfNjpP3g&list=PLpkpPeN39kxLiNkBvztCPfzgcyx96NQux)
 
-## Playlist completa em ordem alfabética por Nome de música:
+## Playlist completa em ordem alfabética por *Nome do(a) Cantor(a)*:
+
+- [Alceu Valença - Como dois animais](https://www.letras.mus.br/alceu-valenca/44009)
+- [Alceu Valença - Flor de tangerina](https://www.letras.mus.br/alceu-valenca/400631)
+- [Aldair Soares - Pé do Lageiro](https://www.letras.mus.br/aldair-soares/pe-do-lageiro)
+- [Almir Sater - Peão](https://www.letras.mus.br/almir-sater/127233/)
+- [Angela RoRo - Parte com o capeta](https://www.letras.mus.br/angela-ro-ro/parte-com-o-capeta) 
+- [Bambas de Sampa - Olha a Onça Aí](https://www.youtube.com/watch?v=v5E5PEG9lfE&list=PLpkpPeN39kxLiNkBvztCPfzgcyx96NQux&index=97) 
+- [Barbatuques - Onça](https://www.letras.mus.br/barbatuques/1800276)
+- [Bebeto - Segura a nêga](https://www.letras.mus.br/bebeto/209329)
+- [Beth Carvalho - Bafo da onça](https://www.youtube.com/watch?v=ZUSchMcSzdM) 
+- [Canarinho - O Ciro E A Onça](https://www.youtube.com/watch?v=jMAi6PpKVBM&list=PLpkpPeN39kxLiNkBvztCPfzgcyx96NQux&index=104)
+- [Carlos Galhardo - No tempo do onça](https://www.letras.mus.br/carlos-galhardo/819774/)
+- [Carroça de Mamulengos - A Onça Comeu Meu Bezerro](https://www.youtube.com/watch?v=KyWoy78BpVQ&list=PLpkpPeN39kxLiNkBvztCPfzgcyx96NQux&index=122)
+- [Centro Ypiranga de Pastinha - A Onça Morreu o Mato e Meu](https://www.youtube.com/watch?v=uPHdlVe9ZYE&list=PLpkpPeN39kxLiNkBvztCPfzgcyx96NQux&index=106)
+- [César Nascimento - O Encanto Da Orquestra](https://www.youtube.com/watch?v=ITLrthVu9wU)
+- [Chico César - Pedra De Responsa](https://www.youtube.com/watch?v=BPHkPi9xUMA&list=PLpkpPeN39kxLiNkBvztCPfzgcyx96NQux&index=125)
+- [Craveiro e Cravinho - Caçada de onça](https://www.letras.mus.br/craveiro-cravinho/1560459)
+- [Divino e Donizete - Leite de onça](https://www.letras.mus.br/divino-donizete/leite-de-onca)
+- [Divino e Donizete - Por causa de uma paixão](https://www.youtube.com/watch?v=hI_ld472RsA&list=PLr9gz_HDLw8O1bUUcpmYZYcyoNG6Ktiz9&index=11)
+- [Dupla Zoológica - É onça](https://www.youtube.com/watch?v=KxpCsg4W3yk) 
+- [Edu Araujo - Onça Pintada](https://www.youtube.com/watch?v=RmhAhIqR86U)
+- [Edu Lobo - Lero lero](https://www.letras.mus.br/edu-lobo/45625)  
+- [Evandro Correia - O Tango da Onça](https://www.youtube.com/watch?v=CaYWuihj4BM&list=PLpkpPeN39kxLiNkBvztCPfzgcyx96NQux&index=108)
+- [Elza Soares - Giringonça](https://www.letras.mus.br/elza-soares/1625966/)
+- [Flora Matos - Esperar o sol](https://www.letras.mus.br/flora-matos/esperar-o-sol/)
+- [Genival Lacerda - Bandinha do macaco](https://www.letras.mus.br/genival-lacerda/1803304/)
+- [Grupo mensageiro - Onça Malvada](https://www.youtube.com/watch?v=lNS3HzgKf-w&list=PLpkpPeN39kxLiNkBvztCPfzgcyx96NQux&index=107)
+- [Inezita Barroso - Moda da onça](https://www.letras.mus.br/inezita-barroso/moda-da-onca)
+- [Itamar Assumpção - A hora da onça beber água](https://www.letras.mus.br/suzana-salles/384936/#album:suzana-salles-1994-1994) (Versão Suzana Salles 19:03)
+- [Itamar Assumpção - Adeus Pantanal](https://www.letras.com/itamar-assumpcao/272396/)
+- [Itamar Assumpção - Nego Dito](https://www.letras.mus.br/branca-di-neve/1281260/) (Versão Branca Di Neve)
+- [Ivete Ribeiro - O amigo da onça](https://www.youtube.com/watch?v=QMkp9bjvMVw)
+- [Jaco e Jacozinho - Amigo da onça](https://www.letras.mus.br/jaco-jacozinho/883318/)
+- [Jaco e Jacozinho - Cachorro valente](https://www.letras.mus.br/jaco-jacozinho/883320)
+- [Jaco e Jacozinho - O cheiro da onça](https://www.letras.mus.br/jaco-jacozinho/1745471/)
+- [Jararaca e Ratinho - Chico Onça e Mané Gato](https://discografiabrasileira.com.br/fonograma/48530/chico-onca-e-mane-gato) 
+- [Josias Sobrinho - Três Potes](https://www.youtube.com/watch?v=jyKtKyG3KgI)
+- [Lifanco Kariri - Raimundo e a Onça](https://www.youtube.com/watch?v=aG7qlC2E4E0&list=PLpkpPeN39kxLiNkBvztCPfzgcyx96NQux&index=111)
+- [Lourenço e Lourival - Filhote de onça](https://www.letras.mus.br/lourenco-e-lourival/1194053)  
+- [Lourenço e Lourival - O menino e o caçador](https://www.letras.mus.br/lourenco-e-lourival/849052/)
+- [Lourenço e Lourival - Tudo cai](https://www.letras.mus.br/lourenco-e-lourival/1895763/)
+- [Luiz Gonzaga - Retrato de um forró](https://www.letras.mus.br/luiz-gonzaga/261218)
+- [Marku Ribas - Se a onça morrer](https://www.youtube.com/watch?v=0mJE7fRWuto&list=PLpkpPeN39kxLiNkBvztCPfzgcyx96NQux&index=101)
+- [Mestre Fanho - Onça Braba](https://www.youtube.com/watch?v=xhNtwslY4d0&list=PLpkpPeN39kxLiNkBvztCPfzgcyx96NQux&index=119)
+- [Milton Nascimento - Yauaretê](https://www.letras.mus.br/milton-nascimento/646479/)
+- [Moreira da Silva - Amigo da onça](https://www.youtube.com/watch?v=GAEw0Len2Dc)
+- [Nhô Pai e Nhô Fio - Casinha de carandá](https://www.letras.mus.br/nho-pai-e-nho-fio/casinha-de-caranda/)
+- [Nuno Roland - Do Pilá](https://www.letras.mus.br/karina-buhr/do-pila/)
+- 
+- [Paulo Tapajós - Luar do sertão](https://discografiabrasileira.com.br/fonograma/117523/luar-do-sertao) *algumas versões excluíram o trecho que cita "a onça"
+- [Paulo Vanzolini - Capoeira do Arnaldo](https://www.letras.mus.br/paulo-vanzolini/397724) 
+- [Raul Torres & Florêncio - Casamento da onça](https://www.youtube.com/watch?v=8BobpvxZhmY) 
+- [Rolandro Boldrin - Caçada de onça](https://www.letras.mus.br/rolando-boldrin/1902110)
+- [Saulo Laranjeira - Pulo do gato (Xangai)](https://www.letras.mus.br/saulo-laranjeira/1318628)
+- [Serrinha e Caboclinho - Caçada de onça](https://www.youtube.com/watch?v=QS4LpjqDEDA)
+- [Serrinha e Caboclinho - Onça pintada](https://www.letras.mus.br/serrinha-caboclinho/onca-pintada)
+- [Sivuca - Onça Caetana](https://www.letras.mus.br/sivuca/1527949/)
+- [Tião Carreiro e Pardinho - Caçador do Ivinhema](https://www.letras.mus.br/tiao-carreiro-e-pardinho/1583692)
+- [Tião Carreiro e Pardinho - Faca que não corta](https://www.letras.mus.br/tiao-carreiro/1089161/) 
+- [Tião Carreiro e Pardinho - Ferreirinha](https://www.letras.mus.br/tiao-carreiro-e-pardinho/570795/)
+- [Tião Carreiro e Pardinho - Onça de paletó](https://www.letras.mus.br/tiao-carreiro-e-pardinho/1864931)
+- [Tião Carreiro e Pardinho - Saudosa vida de peão](https://www.letras.mus.br/tiao-carreiro-e-pardinho/463388)
+- [Tião Carreiro e Pardinho - Onça pintada](https://www.letras.mus.br/tiao-do-carro-pagodinho/onca-pintada)
+- [Tom Jobim - Borzeguim](https://www.letras.mus.br/tom-jobim/86158) 
+- [Zeca Baleiro - Onça pintada](https://www.letras.mus.br/zeca-baleiro/onca-pintada)
+- [Zico e Zeca - Chegou a hora da onça beber água](https://www.letras.mus.br/zico-e-zeca/1715070)
+
+
+
+
+
+
+
+
+
+
+- [Poeta J Sousa - O caçador e a onça](https://www.letras.mus.br/poeta-j-sousa/o-cacador-e-a-onca/)
+- [Pretas Caboclas - Rugido da Onça](https://www.youtube.com/watch?v=hVjKV5G96R4&list=PLpkpPeN39kxLiNkBvztCPfzgcyx96NQux&index=94)
+- [Rubinho do Vale - A fauna e a flora](https://www.letras.mus.br/rubinho-do-vale/1123218/)
+- [Sambadores e Sambadeiras da Bahia - Mamãe Olha a Onça](https://www.youtube.com/watch?v=DeQgxdY1WaU&list=PLpkpPeN39kxLiNkBvztCPfzgcyx96NQux&index=126)
+- [Tainá Santos - Cablocos da onça-pintada](https://www.letras.mus.br/taina-santos/caboclos-da-onca/)
+- [Titãs - Bichos escrotos](https://www.letras.mus.br/titas/48960/)
+- [Tonico e Tinoco - Dois corações](https://www.letras.mus.br/tonico-e-tinoco/89820/)
+- [Toninho e Tonhão - Coco da onça](https://discografiabrasileira.com.br/fonograma/name/coco%20da%20on%C3%A7a/)
+- [Zé do Cedro e Tião do Pinho - Na barriga da onça](https://www.letras.mus.br/ze-do-cedro-tiao-pinho/na-barriga-da-onca/)
+- [Zé e Zilda - A hora da onça](https://discografiabrasileira.com.br/fonograma/75455/a-hora-da-onca) 
+- [Zé Fidélis - Lá vem a onça](https://discografiabrasileira.com.br/composicao/149386/la-vem-a-onca)
+- [Zebeto - Onça Preta](https://www.youtube.com/watch?v=RC7j5YtwOPk&list=PLpkpPeN39kxLiNkBvztCPfzgcyx96NQux&index=91)
+- [Zito Borborema - Zé da onça](https://www.letras.mus.br/zito-borborema/ze-da-onca/)
+
+
+## Playlist completa em ordem alfabética por *Nome de Música*:
 
 - [A fauna e a flora - Rubinho do Vale](https://www.letras.mus.br/rubinho-do-vale/1123218/)
 - [A hora da onça - Zé e Zilda](https://discografiabrasileira.com.br/fonograma/75455/a-hora-da-onca) 
