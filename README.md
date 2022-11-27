@@ -198,7 +198,7 @@ A pesquisa sobre a presença da onça na Música Popular Brasileira continua sen
 - [Zico e Zeca - Chegou a hora da onça beber água](https://www.letras.mus.br/zico-e-zeca/1715070)
 - [Zito Borborema - Zé da onça](https://www.letras.mus.br/zito-borborema/ze-da-onca/)
 
-## Playlist completa em ordem alfabética por *Nome de Música*:
+## Playlist completa em ordem alfabética por Nome de Música:
 
 - [A fauna e a flora - Rubinho do Vale](https://www.letras.mus.br/rubinho-do-vale/1123218/)
 - [A hora da onça - Zé e Zilda](https://discografiabrasileira.com.br/fonograma/75455/a-hora-da-onca) 
