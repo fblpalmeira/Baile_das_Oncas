@@ -111,7 +111,7 @@ Iniciamos a pesquisa sobre a presença da onça na Música Popular Brasileira co
 - (ii) desconfiança, falsidade ou traição (ex. amigo da onça); e, 
 - (iii) caça, medo, admiração e relação com a natureza. 
 
-## Plataformas musicais utilizadas:
+## Confira a nossa Playlist nas diferentes plataformas:
 
 - [Playlist no Letras Terra](https://www.letras.mus.br/membros/1318340/)
 - [Playlist no Spotify](https://open.spotify.com/playlist/04HwA106yZORSAis4JLAoi?si=142aa44ff745464e)
