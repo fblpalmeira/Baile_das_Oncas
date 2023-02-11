@@ -53,11 +53,11 @@ Agradecemos a todas as pessoas envolvidas na conservação das onças, incluindo
 
 <img src="https://github.com/fblpalmeira/Baile_das_Oncas/blob/main/data/BAILE%20DAS%20ON%C3%87AS_2022.jpg" align="right" width = "400px"/>
 
-Vai ter Baile das Onças esse ano de novo, no dia 25/11 às 20h00, no [Canal do TocayaTV na Twitch](https://www.twitch.tv/tocayatv), com canções inéditas, bastante coisa regional, samba de coco, capoeira, carimbó, forró, música caipira, música popular brasileira, entre outras canções rebuscadas do Brasil profundo.
+A segunda edição do Baile das Onças ocorreu no dia 25/11 às 20h00, no [Canal do TocayaTV na Twitch](https://www.twitch.tv/tocayatv), e teve canções inéditas rebuscadas do Brasil profundo e de diferentes estilos musicais como o samba de coco, a capoeira, o carimbó, o forró, a música caipira, a música popular brasileira, entre outros.
 
 Confira o Baile das Onças no site do [Coletivo Tocaya](https://coletivotocaya.com.br/2022/11/25/bailedasoncas2022/)
 
-*Playlist [preliminar] da 2a. Edição (2022):*
+*Playlist da 2a. Edição (2022):*
 
 - [Alceu Valença - Flor de tangerina](https://www.letras.mus.br/alceu-valenca/400631)
 - [Almir Sater - Peão](https://www.letras.mus.br/almir-sater/127233/)
@@ -67,7 +67,6 @@ Confira o Baile das Onças no site do [Coletivo Tocaya](https://coletivotocaya.c
 - [Carlos Galhardo - No tempo do onça](https://www.letras.mus.br/carlos-galhardo/819774/)
 - [Carroça de Mamulengos - A Onça Comeu Meu Bezerro](https://www.youtube.com/watch?v=KyWoy78BpVQ&list=PLpkpPeN39kxLiNkBvztCPfzgcyx96NQux&index=122)
 - [Centro Ypiranga de Pastinha - A Onça Morreu o Mato e Meu](https://www.youtube.com/watch?v=uPHdlVe9ZYE&list=PLpkpPeN39kxLiNkBvztCPfzgcyx96NQux&index=106)
-- [César Nascimento - O Encanto Da Orquestra](https://www.youtube.com/watch?v=ITLrthVu9wU)
 - [Chico César - Pedra De Responsa](https://www.youtube.com/watch?v=BPHkPi9xUMA&list=PLpkpPeN39kxLiNkBvztCPfzgcyx96NQux&index=125)
 - [Divino e Donizete - Por causa de uma paixão](https://www.youtube.com/watch?v=hI_ld472RsA&list=PLr9gz_HDLw8O1bUUcpmYZYcyoNG6Ktiz9&index=11)
 - [Dupla Zoológica - É onça](https://www.youtube.com/watch?v=KxpCsg4W3yk) 
