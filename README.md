@@ -53,7 +53,7 @@ Agradecemos a todas as pessoas envolvidas na conservação das onças, incluindo
 
 <img src="https://github.com/fblpalmeira/Baile_das_Oncas/blob/main/data/BAILE%20DAS%20ON%C3%87AS_2022.jpg" align="right" width = "400px"/>
 
-A segunda edição do Baile das Onças ocorreu no dia 25/11 às 20h00, no [Canal do TocayaTV na Twitch](https://www.twitch.tv/tocayatv), e teve canções inéditas rebuscadas do Brasil profundo e de diferentes estilos musicais como o samba de coco, a capoeira, o carimbó, o forró, a música caipira, a música popular brasileira, entre outros.
+A segunda edição do Baile das Onças ocorreu no dia 25 de novembro de 2002 às 20h00, no [Canal do TocayaTV na Twitch](https://www.twitch.tv/tocayatv), e teve canções inéditas rebuscadas do Brasil profundo e de diferentes estilos musicais como o samba de coco, a capoeira, o carimbó, o forró, a música caipira, a música popular brasileira, entre outros.
 
 Confira o Baile das Onças no site do [Coletivo Tocaya](https://coletivotocaya.com.br/2022/11/25/bailedasoncas2022/)
 
