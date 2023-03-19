@@ -15,6 +15,13 @@ Iniciamos a pesquisa sobre a presença da onça na Música Popular Brasileira co
 - (iii) desconfiança, falsidade ou traição (ex. amigo da onça); e, 
 - (iv) caça, medo, admiração e relação com a natureza. 
 
+## Confira a nossa Playlist nas diferentes plataformas:
+
+- [Playlist no Letras Terra](https://www.letras.mus.br/membros/1318340/)
+- [Playlist no Spotify](https://open.spotify.com/playlist/04HwA106yZORSAis4JLAoi?si=142aa44ff745464e)
+- [Playlist no Deezer](https://deezer.page.link/mJ3ZqrzwrjgkB6vx5)
+- [Playlist no YouTube](https://www.youtube.com/watch?v=x5NmfNjpP3g&list=PLpkpPeN39kxLiNkBvztCPfzgcyx96NQux)
+
 ## 1a. Edição (2021)
 
 <img src="https://github.com/fblpalmeira/Baile_das_Oncas/blob/main/data/BAILE%20DAS%20ONCAS.png" align="right" width = "400px"/>
@@ -116,13 +123,6 @@ Confira o Baile das Onças no site do [Coletivo Tocaya](https://coletivotocaya.c
 - [Zé Fidélis - Lá vem a onça](https://discografiabrasileira.com.br/composicao/149386/la-vem-a-onca)
 - [Zebeto - Onça Preta](https://www.youtube.com/watch?v=RC7j5YtwOPk&list=PLpkpPeN39kxLiNkBvztCPfzgcyx96NQux&index=91)
 - [Zito Borborema - Zé da onça](https://www.letras.mus.br/zito-borborema/ze-da-onca/)
-
-## Confira a nossa Playlist nas diferentes plataformas:
-
-- [Playlist no Letras Terra](https://www.letras.mus.br/membros/1318340/)
-- [Playlist no Spotify](https://open.spotify.com/playlist/04HwA106yZORSAis4JLAoi?si=142aa44ff745464e)
-- [Playlist no Deezer](https://deezer.page.link/mJ3ZqrzwrjgkB6vx5)
-- [Playlist no YouTube](https://www.youtube.com/watch?v=x5NmfNjpP3g&list=PLpkpPeN39kxLiNkBvztCPfzgcyx96NQux)
 
 ## Playlist completa ordenada pelo Nome do(a) Intérprete:
 
