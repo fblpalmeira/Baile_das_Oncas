@@ -6,6 +6,15 @@ O Baile das Onças foi selecionado em oitavo lugar entre as propostas de program
 
 - [Resultado da chamada pública - Rádio UFSCar](http://www.radio.ufscar.br/noticia/radio-ufscar-95-3-fm-publica-resultado-da-chamada-publica?fbclid=IwAR1B8WZhu5bacIcA5WKaBnu8o58Bz505jh5cBT7slaTPDaPOrIFimlFCNpU)
 
+## Um pouco sobre a pesquisa
+
+Iniciamos a pesquisa sobre a presença da onça na Música Popular Brasileira colecionando essas canções "manualmente" ao ouvir rádio, disco, CD, entre outros formatos musicais (ex.: MP3, live na Twitch TV). Também coletamos algumas canções durante conversas informais com diversas pessoas, incluindo profissionais da música (ex.: DJs). Posteriormente, grande parte dessa pesquisa foi realizada utilizando as diferentes plataformas musicais disponíveis (ex.: Letras Terra, Discografia brasileira, Spotify, YouTube, YouTube music, Deezer). O nosso objetivo é descrever quais os sentimentos mais comuns que estão associados as palavras "onça", "onça-pintada", "jaguar", "jaguaretê" e "yauaretê". Atualmente, iniciamos um processo de automatização de contagem dessas palavras para uma análise mais detalhada. Após essa triagem preliminar, estamos analisando dezenas de canções de diferentes estilos musicais. Por enquanto, identificamos quatro categorias de como "a onça" tem sido expressada, sendo elas (não necessariamente nessa ordem):
+
+- (i) sexualizada (ex. onça vista como mulher); 
+- (ii) virando onça (ex. pessoa brava ou com raiva);
+- (iii) desconfiança, falsidade ou traição (ex. amigo da onça); e, 
+- (iv) caça, medo, admiração e relação com a natureza. 
+
 ## 1a. Edição (2021)
 
 <img src="https://github.com/fblpalmeira/Baile_das_Oncas/blob/main/data/BAILE%20DAS%20ONCAS.png" align="right" width = "400px"/>
@@ -108,15 +117,6 @@ Confira o Baile das Onças no site do [Coletivo Tocaya](https://coletivotocaya.c
 - [Zebeto - Onça Preta](https://www.youtube.com/watch?v=RC7j5YtwOPk&list=PLpkpPeN39kxLiNkBvztCPfzgcyx96NQux&index=91)
 - [Zito Borborema - Zé da onça](https://www.letras.mus.br/zito-borborema/ze-da-onca/)
 
-## Um pouco sobre a pesquisa
-
-Iniciamos a pesquisa sobre a presença da onça na Música Popular Brasileira colecionando essas canções "manualmente" ao ouvir rádio, disco, CD, entre outros formatos musicais (ex.: MP3, live na Twitch TV). Também coletamos algumas canções durante conversas informais com diversas pessoas, incluindo profissionais da música (ex.: DJs). Posteriormente, grande parte dessa pesquisa foi realizada utilizando as diferentes plataformas musicais disponíveis (ex.: Letras Terra, Discografia brasileira, Spotify, YouTube, YouTube music, Deezer). O nosso objetivo é descrever quais os sentimentos mais comuns que estão associados as palavras "onça", "onça-pintada", "jaguar", "jaguaretê" e "yauaretê". Atualmente, iniciamos um processo de automatização de contagem dessas palavras para uma análise mais detalhada. Após essa triagem preliminar, estamos analisando dezenas de canções de diferentes estilos musicais. Por enquanto, identificamos quatro categorias de como "a onça" tem sido expressada, sendo elas (não necessariamente nessa ordem):
-
-- (i) sexualizada (ex. onça vista como mulher); 
-- (ii) virando onça (ex. pessoa brava ou com raiva);
-- (iii) desconfiança, falsidade ou traição (ex. amigo da onça); e, 
-- (iv) caça, medo, admiração e relação com a natureza. 
-
 ## Confira a nossa Playlist nas diferentes plataformas:
 
 - [Playlist no Letras Terra](https://www.letras.mus.br/membros/1318340/)
@@ -124,7 +124,7 @@ Iniciamos a pesquisa sobre a presença da onça na Música Popular Brasileira co
 - [Playlist no Deezer](https://deezer.page.link/mJ3ZqrzwrjgkB6vx5)
 - [Playlist no YouTube](https://www.youtube.com/watch?v=x5NmfNjpP3g&list=PLpkpPeN39kxLiNkBvztCPfzgcyx96NQux)
 
-## Playlist completa em ordem alfabética por Nome do(a) Intérprete:
+## Playlist completa ordenada pelo Nome do(a) Intérprete:
 
 - [Alceu Valença - Como dois animais](https://www.letras.mus.br/alceu-valenca/44009)
 - [Alceu Valença - Flor de tangerina](https://www.letras.mus.br/alceu-valenca/400631)
@@ -204,7 +204,7 @@ Iniciamos a pesquisa sobre a presença da onça na Música Popular Brasileira co
 - [Zico e Zeca - Chegou a hora da onça beber água](https://www.letras.mus.br/zico-e-zeca/1715070)
 - [Zito Borborema - Zé da onça](https://www.letras.mus.br/zito-borborema/ze-da-onca/)
 
-## Playlist completa em ordem alfabética por Nome de Música:
+## Playlist completa ordenada pelo Nome de Música:
 
 - [A fauna e a flora - Rubinho do Vale](https://www.letras.mus.br/rubinho-do-vale/1123218/)
 - [A hora da onça - Zé e Zilda](https://discografiabrasileira.com.br/fonograma/75455/a-hora-da-onca) 
