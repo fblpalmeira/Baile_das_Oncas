@@ -107,8 +107,9 @@ Confira o Baile das Onças no site do [Coletivo Tocaya](https://coletivotocaya.c
 Iniciamos a pesquisa sobre a presença da onça na Música Popular Brasileira colecionando essas canções "manualmente" ao ouvir rádio, disco, CD, entre outros formatos musicais (ex.: MP3, live na Twitch TV). Também coletamos algumas canções durante conversas informais com diversas pessoas, incluindo profissionais da música (ex.: DJs). Posteriormente, grande parte dessa pesquisa foi realizada utilizando as diferentes plataformas musicais disponíveis (ex.: Letras Terra, Discografia brasileira, Spotify, YouTube, YouTube music, Deezer). O nosso objetivo é descrever quais os sentimentos mais comuns que estão associados as palavras "onça", "onça-pintada", "jaguar", "jaguaretê" e "yauaretê". Atualmente, iniciamos um processo de automatização de contagem dessas palavras para uma análise mais detalhada. Após essa triagem preliminar, estamos analisando dezenas de canções de diferentes estilos musicais. Por enquanto, identificamos três principais categorias de como "a onça" tem sido expressada, sendo elas (não necessariamente nessa ordem):
 
 - (i) sexualizada (ex. onça vista como mulher); 
-- (ii) desconfiança, falsidade ou traição (ex. amigo da onça); e, 
-- (iii) caça, medo, admiração e relação com a natureza. 
+- (ii) virando onça (ex. pessoa brava ou com raiva);
+- (iii) desconfiança, falsidade ou traição (ex. amigo da onça); e, 
+- (iv) caça, medo, admiração e relação com a natureza. 
 
 ## Confira a nossa Playlist nas diferentes plataformas:
 
