@@ -1,5 +1,11 @@
 # Baile das Onças na Semana de Celebração das Onças Pintadas do Contínuo de Paranapiacaba 
 
+## Programa na Rádio UFSCAR (NOVO):
+
+O Baile das Onças foi selecionado em oitavo lugar entre as propostas de programas radiofônicos que irão compor a grade de 2023 da @radioufscar. Serão quatro programas temáticos transmitidos durante novembro, mês das onças. O objetivo do Baile é mostrar para o público como a onça tem sido retratada na nossa cultura popular e ao mesmo tempo informar sobre a ecologia da onça-pintada, a preservação da biodiversidade, os conflitos de conservação, entre outros tópicos ambientais utilizando a música como ferramenta de comunicação e educação ambiental. Durante cada episódio, os locutores farão uma narração acessível contextualizando quais são os sentimentos mais comuns que estão associados com a palavra “onça” dentro de cada eixo temático. Também irão explicar a origem da música, o ano, a autoria, entre outras informações técnicas. O diferencial desta proposta é que ela será desenvolvida por um grupo diversificado que reúne profissionais da conservação ambiental e um coletivo de DJs. O Coletivo Tocaya terá um papel fundamental na produção, na discotecagem e na locução do programa, transmitindo os resultados da pesquisa científica com uma linguagem acessível e que se aproxima do público em geral. 
+
+- [Resultado da chamada pública - Rádio UFSCAR](http://www.radio.ufscar.br/noticia/radio-ufscar-95-3-fm-publica-resultado-da-chamada-publica?fbclid=IwAR1B8WZhu5bacIcA5WKaBnu8o58Bz505jh5cBT7slaTPDaPOrIFimlFCNpU)
+
 ## 1a. Edição (2021)
 
 <img src="https://github.com/fblpalmeira/Baile_das_Oncas/blob/main/data/BAILE%20DAS%20ONCAS.png" align="right" width = "400px"/>
@@ -110,12 +116,6 @@ Iniciamos a pesquisa sobre a presença da onça na Música Popular Brasileira co
 - (ii) virando onça (ex. pessoa brava ou com raiva);
 - (iii) desconfiança, falsidade ou traição (ex. amigo da onça); e, 
 - (iv) caça, medo, admiração e relação com a natureza. 
-
-## Programa na Rádio UFSCAR:
-
-O Baile das Onças foi selecionado em oitavo lugar entre as propostas de programas radiofônicos que irão compor a grade de 2023 da @radioufscar. Serão quatro programas temáticos transmitidos durante novembro, mês das onças. O objetivo do Baile é mostrar para o público como a onça tem sido retratada na nossa cultura popular e ao mesmo tempo informar sobre a ecologia da onça-pintada, a preservação da biodiversidade, os conflitos de conservação, entre outros tópicos ambientais utilizando a música como ferramenta de comunicação e educação ambiental. Durante cada episódio, os locutores farão uma narração acessível contextualizando quais são os sentimentos mais comuns que estão associados com a palavra “onça” dentro de cada eixo temático. Também irão explicar a origem da música, o ano, a autoria, entre outras informações técnicas. O diferencial desta proposta é que ela será desenvolvida por um grupo diversificado que reúne profissionais da conservação ambiental e um coletivo de DJs. O Coletivo Tocaya terá um papel fundamental na produção, na discotecagem e na locução do programa, transmitindo os resultados da pesquisa científica com uma linguagem acessível e que se aproxima do público em geral. 
-
-- [Resultado da chamada pública - Rádio UFSCAR](http://www.radio.ufscar.br/noticia/radio-ufscar-95-3-fm-publica-resultado-da-chamada-publica?fbclid=IwAR1B8WZhu5bacIcA5WKaBnu8o58Bz505jh5cBT7slaTPDaPOrIFimlFCNpU)
 
 ## Confira a nossa Playlist nas diferentes plataformas:
 
