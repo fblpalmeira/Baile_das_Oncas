@@ -26,55 +26,6 @@ O Baile das Onças foi selecionado em oitavo lugar entre as propostas de program
 
 - [Resultado da chamada pública - Rádio UFSCar](http://www.radio.ufscar.br/noticia/radio-ufscar-95-3-fm-publica-resultado-da-chamada-publica?fbclid=IwAR1B8WZhu5bacIcA5WKaBnu8o58Bz505jh5cBT7slaTPDaPOrIFimlFCNpU)
 
-## 1a. Edição (2021)
-
-<img src="https://github.com/fblpalmeira/Baile_das_Oncas/blob/main/data/BAILE%20DAS%20ONCAS.png" align="right" width = "400px"/>
-
-Em colaboração com o [Projeto Onças do Contínuo de Paranapiacaba](<https://www.instagram.com/oncasdocontinuodeparanapiacaba/>) e o [Coletivo Tocaya](https://www.instagram.com/coletivotocaya/) realizamos o BAILE DAS ONÇAS no dia 26 de novembro de 2021, às 20h, uma festa online temática que integrou a Semana de Celebração das Onças Pintadas do Contínuo de Paranapiacaba. 
-
-A seleção musical incluiu de Tom Jobim a Tião Carreiro e Pardinho, todos cantando a onça em diferentes eixos temáticos. A gravação ficou disponível por duas semanas no canal. 
-
-A apresentação ocorreu ao vivo no [Canal do TocayaTV na Twitch](https://www.twitch.tv/tocayatv), com duas horas de músicas relacionadas ao magnifíco universo das ONÇAS. Assista ao trecho de abertura do [Baile das Onças](https://www.youtube.com/watch?v=x5NmfNjpP3g9), são apenas dois minutos.
-
-Agradecemos a todas as pessoas envolvidas na conservação das onças, incluindo as pessoas que estão na linha de frente da conservação como gestores de parque, monitores, guardas-parque, comunitários locais e todos os produtores rurais que conciliam a sua produção com a conservação das onças. Viva, essa live foi para vocês!
-
-*Playlist da 1a. Edição (2021):*
-
-- [Alceu Valença - Como dois animais](https://www.letras.mus.br/alceu-valenca/44009)
-- [Aldair Soares - Pé do Lageiro](https://www.letras.mus.br/aldair-soares/pe-do-lageiro)
-- [Angela RoRo - Parte com o capeta](https://www.letras.mus.br/angela-ro-ro/parte-com-o-capeta) 
-- [Barbatuques - Onça](https://www.letras.mus.br/barbatuques/1800276)
-- [Bebeto - Segura a nêga](https://www.letras.mus.br/bebeto/209329)
-- [Craveiro e Cravinho - Caçada de onça](https://www.letras.mus.br/craveiro-cravinho/1560459)
-- [Divino e Donizete - Leite de onça](https://www.letras.mus.br/divino-donizete/leite-de-onca)
-- [Edu Lobo - Lero lero](https://www.letras.mus.br/edu-lobo/45625) 
-- [Elza Soares - Giringonça](https://www.letras.mus.br/elza-soares/1625966/)
-- [Flora Matos - Esperar o sol](https://www.letras.mus.br/flora-matos/esperar-o-sol/)
-- [Inezita Barroso - Moda da onça](https://www.letras.mus.br/inezita-barroso/moda-da-onca)
-- [Jaco e Jacozinho - Amigo da onça](https://www.letras.mus.br/jaco-jacozinho/883318/)
-- [Jaco e Jacozinho - Cachorro valente](https://www.letras.mus.br/jaco-jacozinho/883320)
-- [Jaco e Jacozinho - O cheiro da onça](https://www.letras.mus.br/jaco-jacozinho/1745471/)
-- [Josias Sobrinho - Três Potes](https://www.youtube.com/watch?v=jyKtKyG3KgI)
-- [Lourenço e Lourival - Filhote de onça](https://www.letras.mus.br/lourenco-e-lourival/1194053) 
-- [Luiz Gonzaga - Retrato de um forró](https://www.letras.mus.br/luiz-gonzaga/261218)
-- [Nuno Roland - Do Pilá](https://www.letras.mus.br/karina-buhr/do-pila/)
-- [Paulo Vanzolini - Capoeira do Arnaldo](https://www.letras.mus.br/paulo-vanzolini/397724) 
-- [Raul Torres & Florêncio - Casamento da onça](https://www.youtube.com/watch?v=8BobpvxZhmY) 
-- [Rolandro Boldrin - Caçada de onça](https://www.letras.mus.br/rolando-boldrin/1902110)
-- [Saulo Laranjeira - Pulo do gato (Xangai)](https://www.letras.mus.br/saulo-laranjeira/1318628)
-- [Serrinha e Caboclinho - Caçada de onça](https://www.youtube.com/watch?v=QS4LpjqDEDA)
-- [Serrinha e Caboclinho - Onça pintada](https://www.letras.mus.br/serrinha-caboclinho/onca-pintada)
-- [Sivuca - Onça Caetana](https://www.letras.mus.br/sivuca/1527949/)
-- [Tião Carreiro e Pardinho - Caçador do Ivinhema](https://www.letras.mus.br/tiao-carreiro-e-pardinho/1583692)
-- [Tião Carreiro e Pardinho - Faca que não corta](https://www.letras.mus.br/tiao-carreiro/1089161/) 
-- [Tião Carreiro e Pardinho - Ferreirinha](https://www.letras.mus.br/tiao-carreiro-e-pardinho/570795/)
-- [Tião Carreiro e Pardinho - Onça de paletó](https://www.letras.mus.br/tiao-carreiro-e-pardinho/1864931)
-- [Tião Carreiro e Pardinho - Saudosa vida de peão](https://www.letras.mus.br/tiao-carreiro-e-pardinho/463388)
-- [Tião Carreiro e Pardinho - Onça pintada](https://www.letras.mus.br/tiao-do-carro-pagodinho/onca-pintada)
-- [Tom Jobim - Borzeguim](https://www.letras.mus.br/tom-jobim/86158) 
-- [Zeca Baleiro - Onça pintada](https://www.letras.mus.br/zeca-baleiro/onca-pintada)
-- [Zico e Zeca - Chegou a hora da onça beber água](https://www.letras.mus.br/zico-e-zeca/1715070)
-
 ## 2a. Edição (2022)
 
 <img src="https://github.com/fblpalmeira/Baile_das_Oncas/blob/main/data/BAILE%20DAS%20ON%C3%87AS_2022.jpg" align="right" width = "400px"/>
@@ -127,6 +78,55 @@ Confira o Baile das Onças no site do [Coletivo Tocaya](https://coletivotocaya.c
 - [Zé Fidélis - Lá vem a onça](https://discografiabrasileira.com.br/composicao/149386/la-vem-a-onca)
 - [Zebeto - Onça Preta](https://www.youtube.com/watch?v=RC7j5YtwOPk&list=PLpkpPeN39kxLiNkBvztCPfzgcyx96NQux&index=91)
 - [Zito Borborema - Zé da onça](https://www.letras.mus.br/zito-borborema/ze-da-onca/)
+
+## 1a. Edição (2021)
+
+<img src="https://github.com/fblpalmeira/Baile_das_Oncas/blob/main/data/BAILE%20DAS%20ONCAS.png" align="right" width = "400px"/>
+
+Em colaboração com o [Projeto Onças do Contínuo de Paranapiacaba](<https://www.instagram.com/oncasdocontinuodeparanapiacaba/>) e o [Coletivo Tocaya](https://www.instagram.com/coletivotocaya/) realizamos o BAILE DAS ONÇAS no dia 26 de novembro de 2021, às 20h, uma festa online temática que integrou a Semana de Celebração das Onças Pintadas do Contínuo de Paranapiacaba. 
+
+A seleção musical incluiu de Tom Jobim a Tião Carreiro e Pardinho, todos cantando a onça em diferentes eixos temáticos. A gravação ficou disponível por duas semanas no canal. 
+
+A apresentação ocorreu ao vivo no [Canal do TocayaTV na Twitch](https://www.twitch.tv/tocayatv), com duas horas de músicas relacionadas ao magnifíco universo das ONÇAS. Assista ao trecho de abertura do [Baile das Onças](https://www.youtube.com/watch?v=x5NmfNjpP3g9), são apenas dois minutos.
+
+Agradecemos a todas as pessoas envolvidas na conservação das onças, incluindo as pessoas que estão na linha de frente da conservação como gestores de parque, monitores, guardas-parque, comunitários locais e todos os produtores rurais que conciliam a sua produção com a conservação das onças. Viva, essa live foi para vocês!
+
+*Playlist da 1a. Edição (2021):*
+
+- [Alceu Valença - Como dois animais](https://www.letras.mus.br/alceu-valenca/44009)
+- [Aldair Soares - Pé do Lageiro](https://www.letras.mus.br/aldair-soares/pe-do-lageiro)
+- [Angela RoRo - Parte com o capeta](https://www.letras.mus.br/angela-ro-ro/parte-com-o-capeta) 
+- [Barbatuques - Onça](https://www.letras.mus.br/barbatuques/1800276)
+- [Bebeto - Segura a nêga](https://www.letras.mus.br/bebeto/209329)
+- [Craveiro e Cravinho - Caçada de onça](https://www.letras.mus.br/craveiro-cravinho/1560459)
+- [Divino e Donizete - Leite de onça](https://www.letras.mus.br/divino-donizete/leite-de-onca)
+- [Edu Lobo - Lero lero](https://www.letras.mus.br/edu-lobo/45625) 
+- [Elza Soares - Giringonça](https://www.letras.mus.br/elza-soares/1625966/)
+- [Flora Matos - Esperar o sol](https://www.letras.mus.br/flora-matos/esperar-o-sol/)
+- [Inezita Barroso - Moda da onça](https://www.letras.mus.br/inezita-barroso/moda-da-onca)
+- [Jaco e Jacozinho - Amigo da onça](https://www.letras.mus.br/jaco-jacozinho/883318/)
+- [Jaco e Jacozinho - Cachorro valente](https://www.letras.mus.br/jaco-jacozinho/883320)
+- [Jaco e Jacozinho - O cheiro da onça](https://www.letras.mus.br/jaco-jacozinho/1745471/)
+- [Josias Sobrinho - Três Potes](https://www.youtube.com/watch?v=jyKtKyG3KgI)
+- [Lourenço e Lourival - Filhote de onça](https://www.letras.mus.br/lourenco-e-lourival/1194053) 
+- [Luiz Gonzaga - Retrato de um forró](https://www.letras.mus.br/luiz-gonzaga/261218)
+- [Nuno Roland - Do Pilá](https://www.letras.mus.br/karina-buhr/do-pila/)
+- [Paulo Vanzolini - Capoeira do Arnaldo](https://www.letras.mus.br/paulo-vanzolini/397724) 
+- [Raul Torres & Florêncio - Casamento da onça](https://www.youtube.com/watch?v=8BobpvxZhmY) 
+- [Rolandro Boldrin - Caçada de onça](https://www.letras.mus.br/rolando-boldrin/1902110)
+- [Saulo Laranjeira - Pulo do gato (Xangai)](https://www.letras.mus.br/saulo-laranjeira/1318628)
+- [Serrinha e Caboclinho - Caçada de onça](https://www.youtube.com/watch?v=QS4LpjqDEDA)
+- [Serrinha e Caboclinho - Onça pintada](https://www.letras.mus.br/serrinha-caboclinho/onca-pintada)
+- [Sivuca - Onça Caetana](https://www.letras.mus.br/sivuca/1527949/)
+- [Tião Carreiro e Pardinho - Caçador do Ivinhema](https://www.letras.mus.br/tiao-carreiro-e-pardinho/1583692)
+- [Tião Carreiro e Pardinho - Faca que não corta](https://www.letras.mus.br/tiao-carreiro/1089161/) 
+- [Tião Carreiro e Pardinho - Ferreirinha](https://www.letras.mus.br/tiao-carreiro-e-pardinho/570795/)
+- [Tião Carreiro e Pardinho - Onça de paletó](https://www.letras.mus.br/tiao-carreiro-e-pardinho/1864931)
+- [Tião Carreiro e Pardinho - Saudosa vida de peão](https://www.letras.mus.br/tiao-carreiro-e-pardinho/463388)
+- [Tião Carreiro e Pardinho - Onça pintada](https://www.letras.mus.br/tiao-do-carro-pagodinho/onca-pintada)
+- [Tom Jobim - Borzeguim](https://www.letras.mus.br/tom-jobim/86158) 
+- [Zeca Baleiro - Onça pintada](https://www.letras.mus.br/zeca-baleiro/onca-pintada)
+- [Zico e Zeca - Chegou a hora da onça beber água](https://www.letras.mus.br/zico-e-zeca/1715070)
 
 ## Playlist completa ordenada pelo Nome do(a) Intérprete:
 
