@@ -215,13 +215,16 @@ Agradecemos a todas as pessoas envolvidas na conservação das onças, incluindo
 - [A hora da onça beber água - Suzana Salles](https://www.letras.mus.br/suzana-salles/384936/#album:suzana-salles-1994-1994)
 - [A onça - Fernanda Abreu](https://www.letras.mus.br/fernanda-abreu/128710/)
 - [Adeus Pantanal - Itamar Assumpção](https://www.letras.com/itamar-assumpcao/272396/)
+- [Amigo da onça - Amigos da onça]
 - [Amigo da onça - Arte final](https://www.youtube.com/watch?v=0s8DwHY4P5U)
 - [Amigo da onça - Jaco e Jacozinho](https://www.letras.mus.br/jaco-jacozinho/883318/)
 - [Amigo da onça - Moreira da Silva](https://www.youtube.com/watch?v=GAEw0Len2Dc)
 - [Amigo da onça - Nasi & Os irmãos do Blues](https://www.letras.mus.br/nasi-os-irmaos-do-blues/1123860/)
 - [Amigo da onça - Premeditando o breque](https://www.youtube.com/watch?v=o73hR2UJSjY)
 - [Amigo da onça - Swing Rap](https://www.youtube.com/watch?v=p6Klk_XPiMo)
-- [Bafo da onça - Beth Carvalho](https://www.youtube.com/watch?v=ZUSchMcSzdM) 
+- [Bafo da onça - Beth Carvalho](https://www.youtube.com/watch?v=ZUSchMcSzdM)
+- [Bafo de onça - ]
+- [Bafo de onça - ]
 - [Baile de fronteira - Luiz Carlos Borges](https://www.letras.mus.br/luiz-carlos-borges/495797/)
 - [Bandinha do macaco - Genival Lacerda](https://www.letras.mus.br/genival-lacerda/1803304/)
 - [Bicharada - Lan Lan](https://www.letras.mus.br/lan-lan/bicharada/)
