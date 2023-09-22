@@ -273,6 +273,7 @@ Agradecemos a todas as pessoas envolvidas na conservação das onças, incluindo
 - [Nego Dito - Branca Di Neve (Itamar Assumpção)](https://www.letras.mus.br/branca-di-neve/1281260/)
 - [No tempo do onça - Carlos Galhardo](https://www.letras.mus.br/carlos-galhardo/819774/)
 - [O amigo da onça - Ivete Ribeiro](https://www.youtube.com/watch?v=QMkp9bjvMVw)
+- [O Baile da onça - Onça Sessions, Raffa Mogi, Ronan Roma, Isabella Gaspaty, Bean]
 - [O caçador e a onça - Poeta J Sousa](https://www.letras.mus.br/poeta-j-sousa/o-cacador-e-a-onca/)
 - [O cheiro da onça - Jaco e Jacozinho](https://www.letras.mus.br/jaco-jacozinho/1745471/)
 - [O circo - Ivon Curi](https://www.letras.mus.br/ivon-curi/948424/)
@@ -306,6 +307,7 @@ Agradecemos a todas as pessoas envolvidas na conservação das onças, incluindo
 - [Onça pintada - Tião Carreiro e Pardinho](https://www.letras.mus.br/tiao-do-carro-pagodinho/onca-pintada)
 - [Onça pintada - Tião do Carro e Pagodinho](https://www.letras.mus.br/tiao-do-carro-pagodinho/onca-pintada/)
 - [Onça pintada - Zeca Baleiro](https://www.letras.mus.br/zeca-baleiro/onca-pintada)
+- [Ouça a onça - Trupe Chá de Boldo]
 - [Parte com o capeta - Angela RoRo](https://www.letras.mus.br/angela-ro-ro/parte-com-o-capeta)
 - [Peão - Almir Sater](https://www.letras.mus.br/almir-sater/127233/)
 - [Pé do Lageiro  - Aldair Soares](https://www.letras.mus.br/aldair-soares/pe-do-lageiro)
