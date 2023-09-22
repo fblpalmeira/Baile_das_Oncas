@@ -238,6 +238,7 @@ Agradecemos a todas as pessoas envolvidas na conservação das onças, incluindo
 - [Caçada de onça - Rolandro Boldrin (Serrinha e Caboclinho)](https://www.letras.mus.br/rolando-boldrin/1902110)
 - [Caçador do Ivinhema - Tião Carreiro e Pardinho](https://www.letras.mus.br/tiao-carreiro-e-pardinho/1583692)
 - [Cachorro valente - Jaco e Jacozinho](https://www.letras.mus.br/jaco-jacozinho/883320)
+- [Canção da onça-preta - Polimata, Eduardo August]
 - [Capoeira do Arnaldo - Paulo Vanzolini](https://www.letras.mus.br/paulo-vanzolini/397724)
 - [Casamento da onça - Raul Torres & Florêncio](https://www.youtube.com/watch?v=8BobpvxZhmY)
 - [Casinha de carandá - Nhô Pai e Nhô Fio](https://www.letras.mus.br/nho-pai-e-nho-fio/casinha-de-caranda/)
@@ -281,7 +282,9 @@ Agradecemos a todas as pessoas envolvidas na conservação das onças, incluindo
 - [Olha a onça dele no chapéu - Canções de TFM]
 - [Onça - Banda Mirim]
 - [Onça - Barbatuques](https://www.letras.mus.br/barbatuques/1800276)
+- [Onça - Caapora]
 - [Onça / Docilmente selvagem - As Baías](https://www.letras.mus.br/as-baias/onca-docilmente-selvagem/)
+- [Onça - ÉoDan]
 - [Onça - Kariri Xoxó]
 - [Onça - Kakyzin081, Cadu, Kkzin081]
 - [Onça Caetana - Sivuca](https://www.letras.mus.br/sivuca/1527949/)
