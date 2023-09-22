@@ -217,6 +217,8 @@ Agradecemos a todas as pessoas envolvidas na conservação das onças, incluindo
 - [Adeus Pantanal - Itamar Assumpção](https://www.letras.com/itamar-assumpcao/272396/)
 - [Amigo da onça - Amigos da onça]
 - [Amigo da onça - Arte final](https://www.youtube.com/watch?v=0s8DwHY4P5U)
+- [Amigo da onça - George Henrique & Rodrigo]
+- [Amigo da onça - lilgiela33]
 - [Amigo da onça - Jaco e Jacozinho](https://www.letras.mus.br/jaco-jacozinho/883318/)
 - [Amigo da onça - Moreira da Silva](https://www.youtube.com/watch?v=GAEw0Len2Dc)
 - [Amigo da onça - Nasi & Os irmãos do Blues](https://www.letras.mus.br/nasi-os-irmaos-do-blues/1123860/)
@@ -257,6 +259,8 @@ Agradecemos a todas as pessoas envolvidas na conservação das onças, incluindo
 - [Força da onça pintada - Dois Sóis](https://www.letras.mus.br/dois-sois/forca-da-onca-pintada/)
 - [Giringonça - Elza Soares](https://www.letras.mus.br/elza-soares/1625966/)
 - [Guaraná - Luiz Enrique](https://www.letras.mus.br/luiz-enrique/guarana/)
+- [Jaguarete - Amerindia]
+- [Jaguaretês - Luiz Carlos Borges]
 - [Lá vem a onça - Zé Fidélis](https://discografiabrasileira.com.br/composicao/149386/la-vem-a-onca)
 - [Leite de onça - Divino e Donizete](https://www.letras.mus.br/divino-donizete/leite-de-onca)
 - [Lero lero - Edu Lobo](https://www.letras.mus.br/edu-lobo/45625)
@@ -271,6 +275,7 @@ Agradecemos a todas as pessoas envolvidas na conservação das onças, incluindo
 - [O circo - Ivon Curi](https://www.letras.mus.br/ivon-curi/948424/)
 - [O encanto da orquestra - Cesar Nascimento](https://www.youtube.com/watch?v=ITLrthVu9wU)
 - [O menino e o caçador - Lourenço e Lourival](https://www.letras.mus.br/lourenco-e-lourival/849052/)
+- [O pulo do gato - Saulo Laranjeira](https://www.letras.mus.br/saulo-laranjeira/1318628)
 - [Onça - Barbatuques](https://www.letras.mus.br/barbatuques/1800276)
 - [Onça / Docilmente selvagem - As Baías](https://www.letras.mus.br/as-baias/onca-docilmente-selvagem/)
 - [Onça Caetana - Sivuca](https://www.letras.mus.br/sivuca/1527949/)
@@ -285,7 +290,6 @@ Agradecemos a todas as pessoas envolvidas na conservação das onças, incluindo
 - [Peão - Almir Sater](https://www.letras.mus.br/almir-sater/127233/)
 - [Pé do Lageiro  - Aldair Soares](https://www.letras.mus.br/aldair-soares/pe-do-lageiro)
 - [Por causa de uma paixão - Divino e Donizete](https://www.youtube.com/watch?v=hI_ld472RsA&list=PLr9gz_HDLw8O1bUUcpmYZYcyoNG6Ktiz9&index=11)
-- [Pulo do gato - Saulo Laranjeira](https://www.letras.mus.br/saulo-laranjeira/1318628)
 - [Quem me viu, quem me vê - Edson e Hudson](https://www.letras.mus.br/edson-e-hudson/quem-me-viu-quem-me-ve/)
 - [Recuerdos de Taragui - Antonio Gringo](https://www.letras.mus.br/antonio-gringo/recuerdos-de-taragui/)
 - [Retrato de um forró - Luiz Gonzaga](https://www.letras.mus.br/luiz-gonzaga/261218)
