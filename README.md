@@ -285,9 +285,12 @@ Agradecemos a todas as pessoas envolvidas na conservação das onças, incluindo
 - [Onça - Barbatuques](https://www.letras.mus.br/barbatuques/1800276)
 - [Onça - Caapora]
 - [Onça / Docilmente selvagem - As Baías](https://www.letras.mus.br/as-baias/onca-docilmente-selvagem/)
+- [Onça - Daltinn, K1ck3]
 - [Onça - ÉoDan]
 - [Onça - Kariri Xoxó]
 - [Onça - Kakyzin081, Cadu, Kkzin081]
+- [Onça - Nicky, T-Rex]
+- 
 - [Onça Caetana - Sivuca](https://www.letras.mus.br/sivuca/1527949/)
 - [Onça de paletó - Tião Carreiro e Pardinho](https://www.letras.mus.br/tiao-carreiro-e-pardinho/1864931)
 - [Onça do Ivinhema - Divino e Donizete](https://www.letras.mus.br/divino-donizete/onca-do-ivinhema/)
