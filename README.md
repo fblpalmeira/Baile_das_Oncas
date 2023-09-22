@@ -302,6 +302,7 @@ Agradecemos a todas as pessoas envolvidas na conservação das onças, incluindo
 - [Onça - Rosa Macedo]
 - [Onça Caetana - Sivuca](https://www.letras.mus.br/sivuca/1527949/)
 - [Onça de paletó - Tião Carreiro e Pardinho](https://www.letras.mus.br/tiao-carreiro-e-pardinho/1864931)
+- [Onça do astral & Onça arretada - REC'n'Play, Benza Deusa]
 - [Onça do Ivinhema - Divino e Donizete](https://www.letras.mus.br/divino-donizete/onca-do-ivinhema/)
 - [Onça pintada - Aline Romeiro, Bia & Nino, Wald Matos]
 - [Onça pintada - Alquimia Tapajó]
