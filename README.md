@@ -246,10 +246,12 @@ Agradecemos a todas as pessoas envolvidas na conservação das onças, incluindo
 - [Coco da onça - Toninho e Tonhão](https://discografiabrasileira.com.br/fonograma/name/coco%20da%20on%C3%A7a/)
 - [Choro das mulatas  - Paulo Vanzolini](https://www.letras.mus.br/paulo-vanzolini/1920514)
 - [Como dois animais - Alceu Valença](https://www.letras.mus.br/alceu-valenca/44009)
+- [Dona Onça - Mac Júlia]
 - [Do Norte - Zeca Preto](https://www.letras.mus.br/zeca-preto/989885/)
 - [Do Pilá - Nuno Roland](https://www.letras.mus.br/karina-buhr/do-pila/)
 - [Dois corações - Tonico e Tinoco](https://www.letras.mus.br/tonico-e-tinoco/89820/)
 - [É onça - Dupla Zoológica](https://www.youtube.com/watch?v=KxpCsg4W3yk)
+- [Eu quero ver você me pegar - Mundo Bita]
 - [Esperar o sol - Flora Matos](https://www.letras.mus.br/flora-matos/esperar-o-sol/)
 - [Faca que não corta - Tião Carreiro e Pardinho](https://www.letras.mus.br/tiao-carreiro/1089161/)
 - [Ferreirinha - Tião Carreiro e Pardinho](https://www.letras.mus.br/tiao-carreiro-e-pardinho/570795/)
@@ -277,19 +279,25 @@ Agradecemos a todas as pessoas envolvidas na conservação das onças, incluindo
 - [O menino e o caçador - Lourenço e Lourival](https://www.letras.mus.br/lourenco-e-lourival/849052/)
 - [O pulo do gato - Saulo Laranjeira](https://www.letras.mus.br/saulo-laranjeira/1318628)
 - [Olha a onça dele no chapéu - Canções de TFM]
+- [Onça - Banda Mirim]
 - [Onça - Barbatuques](https://www.letras.mus.br/barbatuques/1800276)
 - [Onça / Docilmente selvagem - As Baías](https://www.letras.mus.br/as-baias/onca-docilmente-selvagem/)
 - [Onça - Kariri Xoxó]
+- [Onça - Kakyzin081, Cadu, Kkzin081]
 - [Onça Caetana - Sivuca](https://www.letras.mus.br/sivuca/1527949/)
 - [Onça de paletó - Tião Carreiro e Pardinho](https://www.letras.mus.br/tiao-carreiro-e-pardinho/1864931)
 - [Onça do Ivinhema - Divino e Donizete](https://www.letras.mus.br/divino-donizete/onca-do-ivinhema/)
+- [Onça pintada - Aline Romeiro, Bia & Nino, Wald Matos]
 - [Onça pintada - Alquimia Tapajó]
 - [Onça pintada - Carlos Sartorelli](https://www.letras.mus.br/carlos-santorelli/1892221/)
 - [Onça pintada - Bia & Nino, Badulaque]
+- [Onça pintada - Formiga Balão]
+- [Onça pintada - Hélio Ziskind]
 - [Onça pintada - Mabô e Fifi]
 - [Onça pintada - Menino Jone]
 - [Onça pintada - Paulo Bira, Lucina]
 - [Onça pintada - Pedro & Paraná]
+- [Onça pintada - Rita Rameh e Luiz Waack]
 - [Onça pintada - Sudmar & Martinelli]
 - [Onça pintada - Serrinha e Caboclinho](https://www.letras.mus.br/serrinha-caboclinho/onca-pintada)
 - [Onça pintada - Tião Carreiro e Pardinho](https://www.letras.mus.br/tiao-do-carro-pagodinho/onca-pintada)
