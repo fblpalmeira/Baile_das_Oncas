@@ -215,6 +215,7 @@ Agradecemos a todas as pessoas envolvidas na conservação das onças, incluindo
 - [A hora da onça beber água - Suzana Salles](https://www.letras.mus.br/suzana-salles/384936/#album:suzana-salles-1994-1994)
 - [A onça - Fernanda Abreu](https://www.letras.mus.br/fernanda-abreu/128710/)
 - [Adeus Pantanal - Itamar Assumpção](https://www.letras.com/itamar-assumpcao/272396/)
+- [Amiga da onça - Grupo Samba Nobre]
 - [Amigo da onça - Amigos da onça]
 - [Amigo da onça - Arte final](https://www.youtube.com/watch?v=0s8DwHY4P5U)
 - [Amigo da onça - George Henrique & Rodrigo]
@@ -264,6 +265,7 @@ Agradecemos a todas as pessoas envolvidas na conservação das onças, incluindo
 - [Força da onça pintada - Dois Sóis](https://www.letras.mus.br/dois-sois/forca-da-onca-pintada/)
 - [Giringonça - Elza Soares](https://www.letras.mus.br/elza-soares/1625966/)
 - [Guaraná - Luiz Enrique](https://www.letras.mus.br/luiz-enrique/guarana/)
+- [Interludio - Onça na lagoa - Xique-Xique]
 - [Jaguarete - Amerindia]
 - [Jaguaretês - Luiz Carlos Borges]
 - [Lá vem a onça - Zé Fidélis](https://discografiabrasileira.com.br/composicao/149386/la-vem-a-onca)
@@ -273,6 +275,7 @@ Agradecemos a todas as pessoas envolvidas na conservação das onças, incluindo
 - [Moda da onça - Inezita Barroso](https://www.letras.mus.br/inezita-barroso/moda-da-onca)
 - [Na barriga da onça - Zé do Cedro e Tião do Pinho](https://www.letras.mus.br/ze-do-cedro-tiao-pinho/na-barriga-da-onca/)
 - [Nego Dito - Branca Di Neve (Itamar Assumpção)](https://www.letras.mus.br/branca-di-neve/1281260/)
+- [No balanço da onça-preta - Polimata, André Kablukow]
 - [No tempo do onça - Carlos Galhardo](https://www.letras.mus.br/carlos-galhardo/819774/)
 - [O amigo da onça - Ivete Ribeiro](https://www.youtube.com/watch?v=QMkp9bjvMVw)
 - [O Baile da onça - Onça Sessions, Raffa Mogi, Ronan Roma, Isabella Gaspaty, Bean]
@@ -283,10 +286,12 @@ Agradecemos a todas as pessoas envolvidas na conservação das onças, incluindo
 - [O menino e o caçador - Lourenço e Lourival](https://www.letras.mus.br/lourenco-e-lourival/849052/)
 - [O pulo do gato - Saulo Laranjeira](https://www.letras.mus.br/saulo-laranjeira/1318628)
 - [Olha a onça dele no chapéu - Canções de TFM]
+- [Onça - Alex Agore]
 - [Onça - Banda Mirim]
 - [Onça - Barbatuques](https://www.letras.mus.br/barbatuques/1800276)
 - [Onça - Caapora]
 - [Onça / Docilmente selvagem - As Baías](https://www.letras.mus.br/as-baias/onca-docilmente-selvagem/)
+- [Onça - Daniel Saavedra]
 - [Onça - Daltinn, K1ck3]
 - [Onça - ÉoDan]
 - [Onça - É oDraxx]
@@ -294,6 +299,7 @@ Agradecemos a todas as pessoas envolvidas na conservação das onças, incluindo
 - [Onça - Kariri Xoxó]
 - [Onça - Kakyzin081, Cadu, Kkzin081]
 - [Onça - Nicky, T-Rex]
+- [Onça - Rosa Macedo]
 - [Onça Caetana - Sivuca](https://www.letras.mus.br/sivuca/1527949/)
 - [Onça de paletó - Tião Carreiro e Pardinho](https://www.letras.mus.br/tiao-carreiro-e-pardinho/1864931)
 - [Onça do Ivinhema - Divino e Donizete](https://www.letras.mus.br/divino-donizete/onca-do-ivinhema/)
@@ -326,6 +332,7 @@ Agradecemos a todas as pessoas envolvidas na conservação das onças, incluindo
 - [Três Potes - Josias Sobrinho](https://www.youtube.com/watch?v=jyKtKyG3KgI)
 - [Tudo cai - Lourenço e Lourival](https://www.letras.mus.br/lourenco-e-lourival/1895763/)
 - [Vamos Mariquinha - Genival Lacerda](https://www.letras.mus.br/genival-lacerda/1814754/)
+- [Visão de onça - Mac Júlia]
 - [Yauaretê - Milton Nascimento](https://www.letras.mus.br/milton-nascimento/646479/)
 - [Yawaretê (Onça-pintada) - UIRAPONÃ, Eduárdo Oliveira]
 - [Zé da onça - Zito Borborema](https://www.letras.mus.br/zito-borborema/ze-da-onca/)
