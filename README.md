@@ -227,6 +227,8 @@ Agradecemos a todas as pessoas envolvidas na conservação das onças, incluindo
 - [Bafo da onça - Beth Carvalho](https://www.youtube.com/watch?v=ZUSchMcSzdM)
 - [Bafo de onça - ]
 - [Bafo de onça - ]
+- [Baião da onça - YAMÍ]
+- [Balança Dona Onça - Gu, Mac Júlia]
 - [Baile de fronteira - Luiz Carlos Borges](https://www.letras.mus.br/luiz-carlos-borges/495797/)
 - [Bandinha do macaco - Genival Lacerda](https://www.letras.mus.br/genival-lacerda/1803304/)
 - [Bicharada - Lan Lan](https://www.letras.mus.br/lan-lan/bicharada/)
@@ -287,10 +289,11 @@ Agradecemos a todas as pessoas envolvidas na conservação das onças, incluindo
 - [Onça / Docilmente selvagem - As Baías](https://www.letras.mus.br/as-baias/onca-docilmente-selvagem/)
 - [Onça - Daltinn, K1ck3]
 - [Onça - ÉoDan]
+- [Onça - É oDraxx]
+- [Onça - Igor Thomaz]
 - [Onça - Kariri Xoxó]
 - [Onça - Kakyzin081, Cadu, Kkzin081]
 - [Onça - Nicky, T-Rex]
-- 
 - [Onça Caetana - Sivuca](https://www.letras.mus.br/sivuca/1527949/)
 - [Onça de paletó - Tião Carreiro e Pardinho](https://www.letras.mus.br/tiao-carreiro-e-pardinho/1864931)
 - [Onça do Ivinhema - Divino e Donizete](https://www.letras.mus.br/divino-donizete/onca-do-ivinhema/)
@@ -318,7 +321,6 @@ Agradecemos a todas as pessoas envolvidas na conservação das onças, incluindo
 - [Quem me viu, quem me vê - Edson e Hudson](https://www.letras.mus.br/edson-e-hudson/quem-me-viu-quem-me-ve/)
 - [Recuerdos de Taragui - Antonio Gringo](https://www.letras.mus.br/antonio-gringo/recuerdos-de-taragui/)
 - [Retrato de um forró - Luiz Gonzaga](https://www.letras.mus.br/luiz-gonzaga/261218)
-- 
 - [Saudosa vida de peão - Tião Carreiro e Pardinho](https://www.letras.mus.br/tiao-carreiro-e-pardinho/463388)
 - [Segura a nêga - Bebeto](https://www.letras.mus.br/bebeto/209329)
 - [Três Potes - Josias Sobrinho](https://www.youtube.com/watch?v=jyKtKyG3KgI)
