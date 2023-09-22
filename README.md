@@ -276,12 +276,21 @@ Agradecemos a todas as pessoas envolvidas na conservação das onças, incluindo
 - [O encanto da orquestra - Cesar Nascimento](https://www.youtube.com/watch?v=ITLrthVu9wU)
 - [O menino e o caçador - Lourenço e Lourival](https://www.letras.mus.br/lourenco-e-lourival/849052/)
 - [O pulo do gato - Saulo Laranjeira](https://www.letras.mus.br/saulo-laranjeira/1318628)
+- [Olha a onça dele no chapéu - Canções de TFM]
 - [Onça - Barbatuques](https://www.letras.mus.br/barbatuques/1800276)
 - [Onça / Docilmente selvagem - As Baías](https://www.letras.mus.br/as-baias/onca-docilmente-selvagem/)
+- [Onça - Kariri Xoxó]
 - [Onça Caetana - Sivuca](https://www.letras.mus.br/sivuca/1527949/)
 - [Onça de paletó - Tião Carreiro e Pardinho](https://www.letras.mus.br/tiao-carreiro-e-pardinho/1864931)
 - [Onça do Ivinhema - Divino e Donizete](https://www.letras.mus.br/divino-donizete/onca-do-ivinhema/)
+- [Onça pintada - Alquimia Tapajó]
 - [Onça pintada - Carlos Sartorelli](https://www.letras.mus.br/carlos-santorelli/1892221/)
+- [Onça pintada - Bia & Nino, Badulaque]
+- [Onça pintada - Mabô e Fifi]
+- [Onça pintada - Menino Jone]
+- [Onça pintada - Paulo Bira, Lucina]
+- [Onça pintada - Pedro & Paraná]
+- [Onça pintada - Sudmar & Martinelli]
 - [Onça pintada - Serrinha e Caboclinho](https://www.letras.mus.br/serrinha-caboclinho/onca-pintada)
 - [Onça pintada - Tião Carreiro e Pardinho](https://www.letras.mus.br/tiao-do-carro-pagodinho/onca-pintada)
 - [Onça pintada - Tião do Carro e Pagodinho](https://www.letras.mus.br/tiao-do-carro-pagodinho/onca-pintada/)
@@ -293,10 +302,12 @@ Agradecemos a todas as pessoas envolvidas na conservação das onças, incluindo
 - [Quem me viu, quem me vê - Edson e Hudson](https://www.letras.mus.br/edson-e-hudson/quem-me-viu-quem-me-ve/)
 - [Recuerdos de Taragui - Antonio Gringo](https://www.letras.mus.br/antonio-gringo/recuerdos-de-taragui/)
 - [Retrato de um forró - Luiz Gonzaga](https://www.letras.mus.br/luiz-gonzaga/261218)
+- 
 - [Saudosa vida de peão - Tião Carreiro e Pardinho](https://www.letras.mus.br/tiao-carreiro-e-pardinho/463388)
 - [Segura a nêga - Bebeto](https://www.letras.mus.br/bebeto/209329)
 - [Três Potes - Josias Sobrinho](https://www.youtube.com/watch?v=jyKtKyG3KgI)
 - [Tudo cai - Lourenço e Lourival](https://www.letras.mus.br/lourenco-e-lourival/1895763/)
 - [Vamos Mariquinha - Genival Lacerda](https://www.letras.mus.br/genival-lacerda/1814754/)
 - [Yauaretê - Milton Nascimento](https://www.letras.mus.br/milton-nascimento/646479/)
+- [Yawaretê (Onça-pintada) - UIRAPONÃ, Eduárdo Oliveira]
 - [Zé da onça - Zito Borborema](https://www.letras.mus.br/zito-borborema/ze-da-onca/)
