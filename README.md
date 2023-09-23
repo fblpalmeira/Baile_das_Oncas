@@ -250,6 +250,7 @@ Agradecemos a todas as pessoas envolvidas na conservação das onças, incluindo
 - [Cachorro valente - Jaco e Jacozinho](https://www.letras.mus.br/jaco-jacozinho/883320)
 - [Canção da onça-preta - Polimata, Eduardo August]
 - [Capoeira do Arnaldo - Paulo Vanzolini](https://www.letras.mus.br/paulo-vanzolini/397724)
+- [Casaco de onça - Triqueta Records, Dih Leo]
 - [Casamento da onça - Raul Torres & Florêncio](https://www.youtube.com/watch?v=8BobpvxZhmY)
 - [Casinha de carandá - Nhô Pai e Nhô Fio](https://www.letras.mus.br/nho-pai-e-nho-fio/casinha-de-caranda/)
 - [Chegou a hora da onça beber água - Zico e Zeca](https://www.letras.mus.br/zico-e-zeca/1715070)
