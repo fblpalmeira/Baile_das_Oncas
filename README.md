@@ -221,6 +221,7 @@ Agradecemos a todas as pessoas envolvidas na conservação das onças, incluindo
 - [A onça vai beber água. Jaguariuna: Qualidade de vida e desenvolvimento nos trilhos dos tempos - G.R.S.C.E.S. Pérola Negra]
 - [A onça-pintada - Turma do Caracol]
 - [Adeus Pantanal - Itamar Assumpção](https://www.letras.com/itamar-assumpcao/272396/)
+- [Amiga da onça - Clara Barreto]
 - [Amiga da onça - Grupo Samba Nobre]
 - [Amigo da onça - Amigos da onça]
 - [Amiga da onça - Banda Xeiro Verde]
