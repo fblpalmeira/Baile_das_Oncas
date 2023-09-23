@@ -210,23 +210,28 @@ Agradecemos a todas as pessoas envolvidas na conservação das onças, incluindo
 
 ## Playlist completa ordenada pelo Nome de Música:
 
+- [A briga do cachorro com a onça - Banda de Pife Princesa do Agreste de Caruaru]
 - [A fauna e a flora - Rubinho do Vale](https://www.letras.mus.br/rubinho-do-vale/1123218/)
 - [A hora da onça - Zé e Zilda](https://discografiabrasileira.com.br/fonograma/75455/a-hora-da-onca) 
 - [A hora da onça beber água - Suzana Salles](https://www.letras.mus.br/suzana-salles/384936/#album:suzana-salles-1994-1994)
 - [A onça - Fernanda Abreu](https://www.letras.mus.br/fernanda-abreu/128710/)
 - [A onça - Pablo Maurutto feat. Danni Nascimento]
+- [A onça felinda e suas manchinhas - Felinda]
 - [A onça vai beber água. Jaguariuna: Qualidade de vida e desenvolvimento nos trilhos dos tempos - G.R.S.C.E.S. Pérola Negra]
+- [A onça-pintada - Turma do Caracol]
 - [Adeus Pantanal - Itamar Assumpção](https://www.letras.com/itamar-assumpcao/272396/)
 - [Amiga da onça - Grupo Samba Nobre]
 - [Amigo da onça - Amigos da onça]
 - [Amigo da onça - Arte final](https://www.youtube.com/watch?v=0s8DwHY4P5U)
 - [Amigo da onça - George Henrique & Rodrigo]
 - [Amigo da onça - lilgiela33]
+- [Amiga da onça - Mc Jessica do Escadão, Da Ponte Pra Cá, DJ do Crime]
 - [Amigo da onça - Jaco e Jacozinho](https://www.letras.mus.br/jaco-jacozinho/883318/)
 - [Amigo da onça - Moreira da Silva](https://www.youtube.com/watch?v=GAEw0Len2Dc)
 - [Amigo da onça - Nasi & Os irmãos do Blues](https://www.letras.mus.br/nasi-os-irmaos-do-blues/1123860/)
 - [Amigo da onça - Premeditando o breque](https://www.youtube.com/watch?v=o73hR2UJSjY)
 - [Amigo da onça - Swing Rap](https://www.youtube.com/watch?v=p6Klk_XPiMo)
+
 - [Bafo da onça - Beth Carvalho](https://www.youtube.com/watch?v=ZUSchMcSzdM)
 - [Bafo de onça - ]
 - [Bafo de onça - ]
@@ -253,6 +258,7 @@ Agradecemos a todas as pessoas envolvidas na conservação das onças, incluindo
 - [Choro das mulatas  - Paulo Vanzolini](https://www.letras.mus.br/paulo-vanzolini/1920514)
 - [Como dois animais - Alceu Valença](https://www.letras.mus.br/alceu-valenca/44009)
 - [Dona Onça - Mac Júlia]
+- [Dona Onça - drak$, Love Funk, J. Books]
 - [Do Norte - Zeca Preto](https://www.letras.mus.br/zeca-preto/989885/)
 - [Do Pilá - Nuno Roland](https://www.letras.mus.br/karina-buhr/do-pila/)
 - [Dois corações - Tonico e Tinoco](https://www.letras.mus.br/tonico-e-tinoco/89820/)
@@ -302,6 +308,7 @@ Agradecemos a todas as pessoas envolvidas na conservação das onças, incluindo
 - [Onça - Kariri Xoxó]
 - [Onça - Kakyzin081, Cadu, Kkzin081]
 - [Onça - Nicky, T-Rex]
+- [Onça - MC Bangu]
 - [Onça - Mentufacturer]
 - [Onça - Rosa Macedo]
 - [Onça Caetana - Sivuca](https://www.letras.mus.br/sivuca/1527949/)
@@ -330,6 +337,7 @@ Agradecemos a todas as pessoas envolvidas na conservação das onças, incluindo
 - [Pé do Lageiro  - Aldair Soares](https://www.letras.mus.br/aldair-soares/pe-do-lageiro)
 - [Por causa de uma paixão - Divino e Donizete](https://www.youtube.com/watch?v=hI_ld472RsA&list=PLr9gz_HDLw8O1bUUcpmYZYcyoNG6Ktiz9&index=11)
 - [Quem me viu, quem me vê - Edson e Hudson](https://www.letras.mus.br/edson-e-hudson/quem-me-viu-quem-me-ve/)
+- [Quem pintou a onça - O Príncipe Du'Azul]
 - [Recuerdos de Taragui - Antonio Gringo](https://www.letras.mus.br/antonio-gringo/recuerdos-de-taragui/)
 - [Retrato de um forró - Luiz Gonzaga](https://www.letras.mus.br/luiz-gonzaga/261218)
 - [Saudosa vida de peão - Tião Carreiro e Pardinho](https://www.letras.mus.br/tiao-carreiro-e-pardinho/463388)
