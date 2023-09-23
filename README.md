@@ -217,21 +217,24 @@ Agradecemos a todas as pessoas envolvidas na conservação das onças, incluindo
 - [A onça - Fernanda Abreu](https://www.letras.mus.br/fernanda-abreu/128710/)
 - [A onça - Pablo Maurutto feat. Danni Nascimento]
 - [A onça felinda e suas manchinhas - Felinda]
+- [A onça tá no pé - Mc Menor]
 - [A onça vai beber água. Jaguariuna: Qualidade de vida e desenvolvimento nos trilhos dos tempos - G.R.S.C.E.S. Pérola Negra]
 - [A onça-pintada - Turma do Caracol]
 - [Adeus Pantanal - Itamar Assumpção](https://www.letras.com/itamar-assumpcao/272396/)
 - [Amiga da onça - Grupo Samba Nobre]
 - [Amigo da onça - Amigos da onça]
+- [Amiga da onça - Banda Xeiro Verde]
 - [Amigo da onça - Arte final](https://www.youtube.com/watch?v=0s8DwHY4P5U)
 - [Amigo da onça - George Henrique & Rodrigo]
 - [Amigo da onça - lilgiela33]
+- [Amigo da onça - CTS Kamika-Z, Verdade Positiva]
 - [Amiga da onça - Mc Jessica do Escadão, Da Ponte Pra Cá, DJ do Crime]
 - [Amigo da onça - Jaco e Jacozinho](https://www.letras.mus.br/jaco-jacozinho/883318/)
 - [Amigo da onça - Moreira da Silva](https://www.youtube.com/watch?v=GAEw0Len2Dc)
 - [Amigo da onça - Nasi & Os irmãos do Blues](https://www.letras.mus.br/nasi-os-irmaos-do-blues/1123860/)
 - [Amigo da onça - Premeditando o breque](https://www.youtube.com/watch?v=o73hR2UJSjY)
 - [Amigo da onça - Swing Rap](https://www.youtube.com/watch?v=p6Klk_XPiMo)
-
+- [Amigo da onça - Trio Parada Dura]
 - [Bafo da onça - Beth Carvalho](https://www.youtube.com/watch?v=ZUSchMcSzdM)
 - [Bafo de onça - ]
 - [Bafo de onça - ]
@@ -277,6 +280,7 @@ Agradecemos a todas as pessoas envolvidas na conservação das onças, incluindo
 - [Interludio - Onça na lagoa - Xique-Xique]
 - [Jaguarete - Amerindia]
 - [Jaguaretês - Luiz Carlos Borges]
+- [Javari o Esturro da onça - Boi-bumbá, Gilson Mattos]
 - [Lá vem a onça - Zé Fidélis](https://discografiabrasileira.com.br/composicao/149386/la-vem-a-onca)
 - [Leite de onça - Divino e Donizete](https://www.letras.mus.br/divino-donizete/leite-de-onca)
 - [Lero lero - Edu Lobo](https://www.letras.mus.br/edu-lobo/45625)
