@@ -214,6 +214,8 @@ Agradecemos a todas as pessoas envolvidas na conservação das onças, incluindo
 - [A hora da onça - Zé e Zilda](https://discografiabrasileira.com.br/fonograma/75455/a-hora-da-onca) 
 - [A hora da onça beber água - Suzana Salles](https://www.letras.mus.br/suzana-salles/384936/#album:suzana-salles-1994-1994)
 - [A onça - Fernanda Abreu](https://www.letras.mus.br/fernanda-abreu/128710/)
+- [A onça - Pablo Maurutto feat. Danni Nascimento]
+- [A onça vai beber água. Jaguariuna: Qualidade de vida e desenvolvimento nos trilhos dos tempos - G.R.S.C.E.S. Pérola Negra]
 - [Adeus Pantanal - Itamar Assumpção](https://www.letras.com/itamar-assumpcao/272396/)
 - [Amiga da onça - Grupo Samba Nobre]
 - [Amigo da onça - Amigos da onça]
@@ -285,6 +287,7 @@ Agradecemos a todas as pessoas envolvidas na conservação das onças, incluindo
 - [O encanto da orquestra - Cesar Nascimento](https://www.youtube.com/watch?v=ITLrthVu9wU)
 - [O menino e o caçador - Lourenço e Lourival](https://www.letras.mus.br/lourenco-e-lourival/849052/)
 - [O pulo do gato - Saulo Laranjeira](https://www.letras.mus.br/saulo-laranjeira/1318628)
+- [Olha a onça - Fulkaxó]
 - [Olha a onça dele no chapéu - Canções de TFM]
 - [Onça - Alex Agore]
 - [Onça - Banda Mirim]
@@ -299,6 +302,7 @@ Agradecemos a todas as pessoas envolvidas na conservação das onças, incluindo
 - [Onça - Kariri Xoxó]
 - [Onça - Kakyzin081, Cadu, Kkzin081]
 - [Onça - Nicky, T-Rex]
+- [Onça - Mentufacturer]
 - [Onça - Rosa Macedo]
 - [Onça Caetana - Sivuca](https://www.letras.mus.br/sivuca/1527949/)
 - [Onça de paletó - Tião Carreiro e Pardinho](https://www.letras.mus.br/tiao-carreiro-e-pardinho/1864931)
