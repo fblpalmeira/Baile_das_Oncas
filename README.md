@@ -237,8 +237,8 @@ Agradecemos a todas as pessoas envolvidas na conservação das onças, incluindo
 - [Amigo da onça - Swing Rap](https://www.youtube.com/watch?v=p6Klk_XPiMo)
 - [Amigo da onça - Trio Parada Dura]
 - [Bafo da onça - Beth Carvalho](https://www.youtube.com/watch?v=ZUSchMcSzdM)
-- [Bafo de onça - ]
-- [Bafo de onça - ]
+- [Bafo de onça - Bando do Ratinho]
+- [Bafo de onça - Forró Saborear]
 - [Baião da onça - YAMÍ]
 - [Balança Dona Onça - Gu, Mac Júlia]
 - [Baile de fronteira - Luiz Carlos Borges](https://www.letras.mus.br/luiz-carlos-borges/495797/)
