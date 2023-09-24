@@ -214,6 +214,7 @@ Agradecemos a todas as pessoas envolvidas na conservação das onças, incluindo
 - [A fauna e a flora - Rubinho do Vale](https://www.letras.mus.br/rubinho-do-vale/1123218/)
 - [A hora da onça - Zé e Zilda](https://discografiabrasileira.com.br/fonograma/75455/a-hora-da-onca) 
 - [A hora da onça beber água - Suzana Salles](https://www.letras.mus.br/suzana-salles/384936/#album:suzana-salles-1994-1994)
+- [A incrível história do homem que só tinha medo da Matinta Pere, da tocandira e da onça pé de boi - Igor Sorriso]
 - [A onça - Fernanda Abreu](https://www.letras.mus.br/fernanda-abreu/128710/)
 - [A onça - Pablo Maurutto feat. Danni Nascimento]
 - [A onça felinda e suas manchinhas - Felinda]
@@ -223,14 +224,15 @@ Agradecemos a todas as pessoas envolvidas na conservação das onças, incluindo
 - [Adeus Pantanal - Itamar Assumpção](https://www.letras.com/itamar-assumpcao/272396/)
 - [Amiga da onça - Clara Barreto]
 - [Amiga da onça - Grupo Samba Nobre]
-- [Amigo da onça - Amigos da onça]
 - [Amiga da onça - Banda Xeiro Verde]
+- [Amigo da onça - Amigos da onça]
 - [Amigo da onça - Arte final](https://www.youtube.com/watch?v=0s8DwHY4P5U)
 - [Amigo da onça - George Henrique & Rodrigo]
 - [Amigo da onça - lilgiela33]
 - [Amigo da onça - CTS Kamika-Z, Verdade Positiva]
 - [Amiga da onça - Mc Jessica do Escadão, Da Ponte Pra Cá, DJ do Crime]
 - [Amigo da onça - Jaco e Jacozinho](https://www.letras.mus.br/jaco-jacozinho/883318/)
+- [Amigo da onça - Juizo Final]
 - [Amigo da onça - Moreira da Silva](https://www.youtube.com/watch?v=GAEw0Len2Dc)
 - [Amigo da onça - Nasi & Os irmãos do Blues](https://www.letras.mus.br/nasi-os-irmaos-do-blues/1123860/)
 - [Amigo da onça - Premeditando o breque](https://www.youtube.com/watch?v=o73hR2UJSjY)
