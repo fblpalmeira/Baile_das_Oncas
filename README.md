@@ -221,6 +221,7 @@ Agradecemos a todas as pessoas envolvidas na conservação das onças, incluindo
 - [A onça tá no pé - Mc Menor]
 - [A onça vai beber água. Jaguariuna: Qualidade de vida e desenvolvimento nos trilhos dos tempos - G.R.S.C.E.S. Pérola Negra]
 - [A onça-pintada - Turma do Caracol]
+- [As de onças - Raira Maia, DJ BR4]
 - [Adeus Pantanal - Itamar Assumpção](https://www.letras.com/itamar-assumpcao/272396/)
 - [Amiga da onça - Clara Barreto]
 - [Amiga da onça - Grupo Samba Nobre]
@@ -252,6 +253,7 @@ Agradecemos a todas as pessoas envolvidas na conservação das onças, incluindo
 - [Caçada da onça - Amaranto](https://www.letras.mus.br/amaranto/395478/)
 - [Caçada de onça - Craveiro e Cravinho](https://www.letras.mus.br/craveiro-cravinho/1560459)
 - [Caçada de onça - Rolandro Boldrin (Serrinha e Caboclinho)](https://www.letras.mus.br/rolando-boldrin/1902110)
+- [Caçada de onça - Zé Gonzaga]
 - [Caçador do Ivinhema - Tião Carreiro e Pardinho](https://www.letras.mus.br/tiao-carreiro-e-pardinho/1583692)
 - [Cachorro valente - Jaco e Jacozinho](https://www.letras.mus.br/jaco-jacozinho/883320)
 - [Canção da onça-preta - Polimata, Eduardo August]
@@ -289,6 +291,7 @@ Agradecemos a todas as pessoas envolvidas na conservação das onças, incluindo
 - [Lero lero - Edu Lobo](https://www.letras.mus.br/edu-lobo/45625)
 - [Luar do sertão  - Paulo Tapajós](https://discografiabrasileira.com.br/fonograma/117523/luar-do-sertao) *algumas versões excluíram o trecho que cita "a onça"
 - [Moda da onça - Inezita Barroso](https://www.letras.mus.br/inezita-barroso/moda-da-onca)
+- [Mano velho (E o conto da onça) - Lapidação]
 - [Na barriga da onça - Zé do Cedro e Tião do Pinho](https://www.letras.mus.br/ze-do-cedro-tiao-pinho/na-barriga-da-onca/)
 - [Nego Dito - Branca Di Neve (Itamar Assumpção)](https://www.letras.mus.br/branca-di-neve/1281260/)
 - [No balanço da onça-preta - Polimata, André Kablukow]
@@ -340,6 +343,8 @@ Agradecemos a todas as pessoas envolvidas na conservação das onças, incluindo
 - [Onça pintada - Tião do Carro e Pagodinho](https://www.letras.mus.br/tiao-do-carro-pagodinho/onca-pintada/)
 - [Onça pintada - Zeca Baleiro](https://www.letras.mus.br/zeca-baleiro/onca-pintada)
 - [Ouça a onça - Trupe Chá de Boldo]
+- [Pata de onça - Manu Maltez]
+- [Pata de onça - Cláudio Back, Cla.p]
 - [Parte com o capeta - Angela RoRo](https://www.letras.mus.br/angela-ro-ro/parte-com-o-capeta)
 - [Peão - Almir Sater](https://www.letras.mus.br/almir-sater/127233/)
 - [Pé do Lageiro  - Aldair Soares](https://www.letras.mus.br/aldair-soares/pe-do-lageiro)
@@ -348,8 +353,10 @@ Agradecemos a todas as pessoas envolvidas na conservação das onças, incluindo
 - [Quem pintou a onça - O Príncipe Du'Azul]
 - [Recuerdos de Taragui - Antonio Gringo](https://www.letras.mus.br/antonio-gringo/recuerdos-de-taragui/)
 - [Retrato de um forró - Luiz Gonzaga](https://www.letras.mus.br/luiz-gonzaga/261218)
+- [Ribeirão das onças - Reinaldo Godinho]
 - [Saudosa vida de peão - Tião Carreiro e Pardinho](https://www.letras.mus.br/tiao-carreiro-e-pardinho/463388)
 - [Segura a nêga - Bebeto](https://www.letras.mus.br/bebeto/209329)
+- [Território de onça - Luiz Fernando & Pinherense]
 - [Três Potes - Josias Sobrinho](https://www.youtube.com/watch?v=jyKtKyG3KgI)
 - [Tudo cai - Lourenço e Lourival](https://www.letras.mus.br/lourenco-e-lourival/1895763/)
 - [Vamos Mariquinha - Genival Lacerda](https://www.letras.mus.br/genival-lacerda/1814754/)
