@@ -26,7 +26,7 @@ A nossa playlist do Baile das Onças no Spotify já conta com 429 itens, quase 2
 A segunda temporada do Baile da onças - Biomas e Ritmos foi aprovada em quinto lugar no [edital 2023/2024 da Rádio UFSCar](https://www.saci.ufscar.br/data/solicitacao/52868_resultado.pdf). Desta vez, vamos passear pelos cinco biomas brasileiros de ocorrência da onça (Amazônia, Pantanal, Cerrado, Caatinga e Mata Atlântica) e falar dos seus povos, da sua música e dança, além de trazer curiosidades e informações sobre a biologia e ecologia das onças em cada um desses lugares. Confira a [programação da rádio em 2024](http://radio.ufscar.br/noticia/radio-ufscar-inicia-sua-programacao-de-2024). 
 
 ## Programa na Rádio UFSCar (1a. temporada, novembro de 2023):
-<img src="https://github.com/fblpalmeira/Baile_das_Oncas/blob/main/data/Logo_Baile_UFSCar_2023.png" align="right" width = "400px"/>
+<img src="https://github.com/fblpalmeira/Baile_das_Oncas/blob/main/data/BAILE%20DAS%20ON%C3%87AS.png" align="right" width = "400px"/>
 
 O Baile das Onças foi selecionado em oitavo lugar entre as propostas de programas radiofônicos que irão compor a grade de 2023 da [Rádio UFSCar](http://radio.ufscar.br/edital/edital-2022-2023). Na primeira temporada, transmitida em novembro de 2023, apresentamos os cinco eixos temáticos de como a onça tem sido representada nas canções (Onça-mulher, O amigo da onça, Caça e medo, Virando onça e Força da natureza). Os cinco primeiros episódios estão disponíveis na página do [Coletivo Tocaya](https://coletivotocaya.com.br/oncas). 
 
