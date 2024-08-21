@@ -14,14 +14,16 @@ Iniciamos a pesquisa sobre a presença da onça na Música Popular Brasileira co
 
 ## Confira a nossa Playlist nas diferentes plataformas:
 
-- [Playlist no Deezer](https://deezer.page.link/mJ3ZqrzwrjgkB6vx5)
+A nossa playlist do Baile das Onças no Spotify já conta com 429 itens, quase 24 horas consecutivas de músicas, canções e contos que falam de onça. 
+
 - [Playlist no Spotify](https://open.spotify.com/playlist/04HwA106yZORSAis4JLAoi?si=142aa44ff745464e)
+- [Playlist no Deezer](https://deezer.page.link/mJ3ZqrzwrjgkB6vx5)
 - [Playlist no YouTube](https://www.youtube.com/watch?v=x5NmfNjpP3g&list=PLpkpPeN39kxLiNkBvztCPfzgcyx96NQux)
 - [Playlist no Letras Terra](https://www.letras.mus.br/membros/1318340/)
 
-## Programa na Rádio UFSCar (Em novembro de 2024!):
+## Programa na Rádio UFSCar (2a. temporada em breve, novembro de 2024!):
 
-A segunda temporada do Baile da onças - Biomas e Ritmos foi aprovada em quinto lugar no edital da @radioufscar. Desta vez, vamos passear pelos cinco biomas brasileiros de ocorrência da onça (Amazônia, Pantanal, Cerrado, Caatinga e Mata Atlântica) e falar dos seus povos, da sua música e dança, além de trazer curiosidades e informações sobre a biologia e ecologia das onças em cada um desses lugares. A nossa playlist do [Baile das Onças no Spotify](https://open.spotify.com/playlist/04HwA106yZORSAis4JLAoi) já conta com 429 itens, quase 24 horas consecutivas de músicas, canções e contos que falam de onça. 
+A segunda temporada do Baile da onças - Biomas e Ritmos foi aprovada em quinto lugar no edital da @radioufscar. Desta vez, vamos passear pelos cinco biomas brasileiros de ocorrência da onça (Amazônia, Pantanal, Cerrado, Caatinga e Mata Atlântica) e falar dos seus povos, da sua música e dança, além de trazer curiosidades e informações sobre a biologia e ecologia das onças em cada um desses lugares. 
 
 ## Programa na Rádio UFSCar (1a. temporada, novembro de 2023):
 <img src="https://github.com/fblpalmeira/Baile_das_Oncas/blob/main/data/Logo_Baile_UFSCar_2023.png" align="right" width = "400px"/>
